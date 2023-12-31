@@ -224,23 +224,23 @@ Let me know in the comments section.
 
 **<u>LEARN MORE</u>**
 
-Website: <http://liveabove3d.com>
+Website: [http://liveabove3d.com](http://liveabove3d.com)
 
 Youtube:
-[<u>https://www.youtube.com/@live.above.3d</u>](https://www.youtube.com/@live.above.3d)
+[https://www.youtube.com/@live.above.3d](https://www.youtube.com/@live.above.3d)
 
 Tiktok:
-[<u>https://www.tiktok.com/@live.above.3d</u>](https://www.tiktok.com/@live.above.3d)
+[https://www.tiktok.com/@live.above.3d](https://www.tiktok.com/@live.above.3d)
 
 Twitter: @live\_above\_3d
-[<u>https://twitter.com/live\_above\_3d</u>](https://twitter.com/live_above_3d)
+[https://twitter.com/live\_above\_3d](https://twitter.com/live_above_3d)
 
-Reddit: live-above-3d <https://www.reddit.com/user/live-above-3d>
+Reddit: live-above-3d [https://www.reddit.com/user/live-above-3d](https://www.reddit.com/user/live-above-3d)
 
-Instagram: <https://www.instagram.com/live.above.3d/>
+Instagram: [https://www.instagram.com/live.above.3d/](https://www.instagram.com/live.above.3d/)
 
 Facebook:
-[<u>https://www.facebook.com/profile.php?id=100092339087423</u>](https://www.facebook.com/profile.php?id=100092339087423)
+[https://www.facebook.com/profile.php?id=100092339087423](https://www.facebook.com/profile.php?id=100092339087423)
 
 **<u>BIBLE VERSES</u>**
 
