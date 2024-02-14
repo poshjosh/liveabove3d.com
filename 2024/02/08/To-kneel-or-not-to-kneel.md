@@ -117,7 +117,7 @@ So, what is God’s means to get money.
 
 From the scripture, there are 3 general ways to make money.
 
-One – The Good
+**One – The Good**
 
 The good way to make money is to work.
 
@@ -132,7 +132,7 @@ Gambling – No.
 
 Get rich quick – No.
 
-Two – The Acceptable
+**Two – The Acceptable**
 
 The acceptable way to make money is to give your money to others.
 
@@ -147,7 +147,7 @@ So; giving to the poor – Yes
 
 Saving – No
 
-Three – The Perfect
+**Three – The Perfect**
 
 The perfect way to make money is to give up your family, money and
 everything to serve God.
@@ -169,6 +169,9 @@ Let me know in the comments section.
 
 **<u>LEARN MORE</u>**
 
+https://youtu.be/Zz0_vwOu_ps
+http://liveabove3d.com/2024/02/08/To-kneel-or-not-to-kneel/
+
 Website: <http://liveabove3d.com>
 
 Youtube:
@@ -189,68 +192,68 @@ Facebook:
 
 **<u>BIBLE VERSES</u>**
 
-**<sup>8 </sup>**Again, the devil taketh him up into an exceeding high
+**<sup>8</sup>**Again, the devil taketh him up into an exceeding high
 mountain, and sheweth him all the kingdoms of the world, and the glory
 of them;
 
-**<sup>9 </sup>**And saith unto him, All these things will I give thee,
+**<sup>9</sup>**And saith unto him, All these things will I give thee,
 if thou wilt fall down and worship me.
 
-**<sup>10 </sup>**Then saith Jesus unto him, Get thee hence, Satan: for
+**<sup>10</sup>**Then saith Jesus unto him, Get thee hence, Satan: for
 it is written, Thou shalt worship the Lord thy God, and him only shalt
 thou serve.
 
-<sup>11 </sup>Then the devil leaveth him, and, behold, angels came and
+<sup>11</sup>Then the devil leaveth him, and, behold, angels came and
 ministered unto him.
 
 Matthew 4:8-11
 
-**<sup>20 </sup>**Now then we are ambassadors for Christ, as though God
+**<sup>20</sup>**Now then we are ambassadors for Christ, as though God
 did beseech you by us: we pray you in Christ's stead, be ye reconciled
 to God.
 
 2 Corinthians 5:20
 
-<sup>23 </sup>In all labour there is profit: but the talk of the lips
+<sup>23</sup>In all labour there is profit: but the talk of the lips
 tendeth only to penury.
 
 Proverbs 14:23
 
-<sup>2 </sup>For thou shalt eat the labour of thine hands: happy shalt
+<sup>2</sup>For thou shalt eat the labour of thine hands: happy shalt
 thou be, and it shall be well with thee.
 
 Psalm 128:2
 
-<sup>18 </sup>For the scripture saith, thou shalt not muzzle the ox that
+<sup>18</sup>For the scripture saith, thou shalt not muzzle the ox that
 treadeth out the corn. And, The labourer is worthy of his reward.
 
 1 Timothy 5:18
 
-<sup>38 </sup>Give, and it shall be given unto you; good measure,
+<sup>38</sup>Give, and it shall be given unto you; good measure,
 pressed down, and shaken together, and running over, shall men give into
 your bosom. For with the same measure that ye mete withal it shall be
 measured to you again.
 
 Luke 6:38
 
-**<sup>6 </sup>**But this I say, He which soweth sparingly shall reap
+**<sup>6</sup>**But this I say, He which soweth sparingly shall reap
 also sparingly; and he which soweth bountifully shall reap also
 bountifully.
 
-**<sup>7 </sup>**Every man according as he purposeth in his heart, so
+**<sup>7</sup>**Every man according as he purposeth in his heart, so
 let him give; not grudgingly, or of necessity: for God loveth a cheerful
 giver.
 
 2 Corinthians 9:6-7
 
-<sup>29 </sup>And every one that hath forsaken houses, or brethren, or
+<sup>29</sup>And every one that hath forsaken houses, or brethren, or
 sisters, or father, or mother, or wife, or children, or lands, for my
 name's sake, shall receive an hundredfold, and shall inherit everlasting
 life.
 
 Matthew 19:29
 
-<sup>26 </sup>For God giveth to a man that is good in his sight wisdom,
+<sup>26</sup>For God giveth to a man that is good in his sight wisdom,
 and knowledge, and joy: but to the sinner he giveth travail, to gather
 and to heap up, that he may give to him that is good before God. This
 also is vanity and vexation of spirit.
