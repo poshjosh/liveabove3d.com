@@ -3,6 +3,8 @@
 # folder structure
 git-ignore/
 
+.idea/
+
 # All files ending with .log will also be ignored by git
 *.log
 
