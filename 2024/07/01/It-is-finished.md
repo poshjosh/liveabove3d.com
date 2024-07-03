@@ -1,4 +1,4 @@
-![Video cover image](./cover.jpg)
+![Video cover image](./cover2.jpg)
 If God is for us, who can be against us?
 
 God, who did not spare his own Son, but gave him up for us all, how will he not also with him gladly and freely give us all things?
