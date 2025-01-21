@@ -1,6 +1,6 @@
 # LiveAbove3D.com
 
-Site pages for live.above3d.com - spreading extra-dimensional awareness.
+Spreading extra-dimensional awareness.
 
 ### Learn More
 
