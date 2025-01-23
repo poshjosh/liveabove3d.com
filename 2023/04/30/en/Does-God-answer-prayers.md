@@ -1,9 +1,3 @@
-You don’t have to read this.
-
-No need to present this visually.
-
-In God’s voice.
-
 **Welcome to: Live Above 3D**
 
 **Here’s a question for you.**

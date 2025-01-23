@@ -1,5 +1,3 @@
-**<u>THE THIRD ADAM?</u>**
-
 Tiktok: <https://www.tiktok.com/@live.above.3d>
 
 Youtube: <https://www.youtube.com/@live.above.3d>

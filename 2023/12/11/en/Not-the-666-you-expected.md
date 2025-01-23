@@ -1,5 +1,3 @@
-**<u>NOT THE 666 YOU EXPECTED</u>**
-
 Do you know that any sufficient advancement will undermine religion?
 
 What has this got to do with the mark of the beast or number 666?

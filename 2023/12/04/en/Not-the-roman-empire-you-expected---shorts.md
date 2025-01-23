@@ -1,5 +1,3 @@
-**<u>NOT THE ROMAN EMPIRE YOU EXPECTED \#SHORTS</u>**
-
 If you wanted to take over the world today, which 3 nations would you
 uproot?
 

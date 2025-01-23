@@ -1,5 +1,3 @@
-**<u>NOT THE ADAM YOU EXPECTED</u>**
-
 Are there secret plans to create a new type of human beings?
 
 What has all this got to do with Adam?

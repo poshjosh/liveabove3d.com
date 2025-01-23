@@ -1,5 +1,3 @@
-**<u>WHY JEWS ARE HATED \#SHORTS</u>**
-
 Tiktok: <https://www.tiktok.com/@live.above.3d>
 
 Youtube: <https://www.youtube.com/@live.above.3d>
@@ -58,69 +56,37 @@ place.
 
 **<u>Bible Verses</u>**
 
- 
-
 Genesis 37:5-11
-
- 
 
 Genesis 37:18-20
 
 Genesis 37:26-27
 
- 
-
 Genesis 12:7
-
- 
 
 Genesis 17:8
 
- 
-
 Daniel 10:12-13
-
- 
 
 Daniel 10:20
 
- 
-
 Genesis 6:2
-
- 
 
 Genesis 17:3-4
 
- 
-
 Deuteronomy 7:6
-
- 
 
 2 Samuel 7:24
 
- 
-
 Ephesians 1:10-11
-
- 
 
 Hebrews 9:14-15
 
- 
-
 2 Corinthians 5:17
-
- 
 
 1 Peter 2:9
 
- 
-
 2 Peter 1:4
-
- 
 
 1 John 4:16b
 
