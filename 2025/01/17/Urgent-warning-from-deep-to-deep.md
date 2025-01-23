@@ -38,4 +38,4 @@ BIBLE VERSES
 
 “Truly, truly, I say to you, he who does not enter by the door into the fold of the sheep, but climbs up some other way, he is a thief and a robber. 2 But he who enters by the door is a shepherd of the sheep. 3 To him the doorkeeper opens, and the sheep hear his voice, and he calls his own sheep by name and leads them out. 4 When he brings all his own out, he goes ahead of them, and the sheep follow him because they know his voice. 5 A stranger they will never follow, but will flee from him, because they do not know the voice of strangers.”
 
-John 10:1-50:1-5
+John 10:1-5
