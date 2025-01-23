@@ -1,4 +1,4 @@
-![title image](media/title-image.png "title-image")
+![cover image](./cover.png "cover-image")
 
 How identical could 2 persons be?
 

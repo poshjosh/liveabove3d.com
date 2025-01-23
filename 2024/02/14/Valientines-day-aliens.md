@@ -1,4 +1,4 @@
-![article cover photo](./article-cover-photo.jpg)
+![cover photo](./cover.jpg "cover photo")
 
 Some have claimed that there are multiple alien races on earth today.
 

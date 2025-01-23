@@ -1,4 +1,4 @@
-![article cover photo](./article-cover-photo.jpg)
+![cover photo](./cover.jpg "cover-photo")
 
 You move to a strange town, where everyone is assigned a gender.
 
