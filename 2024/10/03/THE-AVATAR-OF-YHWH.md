@@ -1,4 +1,4 @@
-![Video cover image](./cover.jpg)
+![Video cover image](./cover.jpg "cover photo")
 You create a video game.
 
 You promise to respect the choices of the game characters.

@@ -1,4 +1,4 @@
-![Video cover image](./cover.jpg)
+![Video cover image](./cover.jpg "cover photo")
 Our God - is who He is.
 
 Commander of light

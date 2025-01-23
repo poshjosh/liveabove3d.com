@@ -1,4 +1,4 @@
-![Video cover image](./cover.jpg)
+![Video cover image](./cover.jpg "cover photo")
 Today we reveal a mystery of faith, I guarantee, you need to hear. 
 
 You’ll be surprised.

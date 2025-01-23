@@ -1,4 +1,4 @@
-![Video cover image](cover.jpg)
+![Video cover image](cover.jpg "cover photo")
 #heavenislegal #mercy #adam #eve #hezekiah #christian #faith #yahweh
 
 Yahweh is merciful – but.

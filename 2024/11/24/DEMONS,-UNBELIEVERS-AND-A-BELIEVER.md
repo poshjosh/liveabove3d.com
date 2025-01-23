@@ -1,4 +1,4 @@
-![Video cover image](./cover.jpg)
+![Video cover image](./cover.jpg "cover photo")
 Here is a riddle.
 
 Demons, unbelievers, a believer and a new convert all pray to Jesus.

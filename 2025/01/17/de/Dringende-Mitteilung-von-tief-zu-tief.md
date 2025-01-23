@@ -1,4 +1,4 @@
-![Video cover image](../cover.jpg)
+![Video cover image](../cover.jpg "cover photo")
 Wussten Sie, dass es Wesen der vierten Dimension (oder Geister) nicht erlaubt ist, mit Menschen zu interagieren?
 
 Dies ist für die Sicherheit der Menschen - aber einige Geister sind ungehorsam.

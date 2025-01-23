@@ -1,4 +1,4 @@
-![Video cover image](./cover.jpg)
+![Video cover image](./cover.jpg "cover photo")
 People rarely ask the right questions.
 
 A very evil man leaves you a billion-dollar inheritance but asks you to do good with it. 

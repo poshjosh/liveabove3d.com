@@ -1,4 +1,4 @@
-![Video cover image](cover.jpg)
+![Video cover image](cover.jpg "cover photo")
 Who shall enter heaven? 
 
 What about rapture?

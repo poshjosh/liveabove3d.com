@@ -1,4 +1,4 @@
-![Video cover image](./cover.jpg)
+![Video cover image](./cover.jpg "cover photo")
 One person always wanted to rule the world – one person.
 
 He used kingdoms, but each lasted for a while – then crumbled.

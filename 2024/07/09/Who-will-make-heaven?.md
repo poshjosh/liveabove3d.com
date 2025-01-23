@@ -1,4 +1,4 @@
-![Video cover image](./cover.jpg)
+![Video cover image](./cover.jpg "cover photo")
 It is not only Christians who will enter heaven.
 
 Hmmm.

@@ -1,4 +1,4 @@
-![Video cover image](cover.jpg)
+![Video cover image](cover.jpg "cover photo")
 Jane had one troubling problem.
 
 After ten years of applying a promising solution, she was left with: one troubling problem and 9 solved problems.

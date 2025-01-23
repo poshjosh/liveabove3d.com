@@ -1,4 +1,4 @@
-![Video cover image](./cover.jpg)
+![Video cover image](./cover.jpg "cover photo")
 In the 2015 movie titled “Mortdecai”, an art thief who had lost everything, said to his wife:
 
 “We may be flat broke, my darling, but we are not desperate”.

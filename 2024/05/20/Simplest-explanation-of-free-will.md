@@ -1,4 +1,4 @@
-![Video cover image](cover.jpg)
+![Video cover image](cover.jpg "cover photo")
 #freewill #experiment #thoughtexperiment #wordoffaith #christian #faith #yahweh
 
 Does free will exist?

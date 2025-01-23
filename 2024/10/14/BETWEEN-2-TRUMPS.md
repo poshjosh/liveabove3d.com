@@ -1,4 +1,4 @@
-![Video cover image](./cover.jpg)
+![Video cover image](./cover.jpg "cover photo")
 Trump has a special role, and it is not what you think.
 
 Hmmm.

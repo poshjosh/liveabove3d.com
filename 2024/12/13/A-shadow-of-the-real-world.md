@@ -1,4 +1,4 @@
-![Video cover image](./cover.jpg)
+![Video cover image](./cover.jpg "cover photo")
 Remember these words.
 
 “The more solid thing can pass through the less solid thing”.

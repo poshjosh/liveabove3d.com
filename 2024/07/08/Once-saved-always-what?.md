@@ -1,4 +1,4 @@
-![Video cover image](./cover.jpg)
+![Video cover image](./cover.jpg "cover photo")
 Can a Christian lose their salvation?
 
 Let’s break that question down to three smaller questions.

@@ -1,4 +1,4 @@
-![Video cover image](./cover.jpg)
+![Video cover image](./cover.jpg "cover photo")
 In the face of trouble, you run to the Word of God.
 
 When the trouble persists, you (being mature) realize that it must be a trial.

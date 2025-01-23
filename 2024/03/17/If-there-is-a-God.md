@@ -1,4 +1,4 @@
-![Video cover image](./cover.jpg)
+![Video cover image](./cover.jpg "cover photo")
 It is 2009 and you want to create the first (and soon-to-be most popular) to-do app.
 
 Your best friend informs you that the app will also increase the productivity of horrible people – including serial killers.

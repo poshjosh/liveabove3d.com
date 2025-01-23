@@ -1,4 +1,4 @@
-![Video cover image](./cover.jpg)
+![Video cover image](./cover.jpg "cover photo")
 When a prey is afraid it runs.
 
 When a predator is afraid, it lashes out.

@@ -1,4 +1,4 @@
-![Video cover image](cover.jpg)
+![Video cover image](cover.jpg "cover photo")
 #heavenislegal #lawandwords #wordoffaith #christian #faith #yahweh
 
 Whether you know it or not, serious accusations are being leveled - against you.

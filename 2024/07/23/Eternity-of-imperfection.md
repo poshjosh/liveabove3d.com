@@ -1,4 +1,4 @@
-![Video cover image](./cover.jpg)
+![Video cover image](./cover.jpg "cover photo")
 What has citizenship got to do with entropy?
 
 And what - in John Hopkins name - is entropy?

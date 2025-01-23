@@ -1,4 +1,4 @@
-![Video cover image](./cover.jpg)
+![Video cover image](./cover.jpg "cover photo")
 What do you do when everything goes haywire?
 
 Some cry out to their father for help.

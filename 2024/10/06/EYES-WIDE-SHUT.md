@@ -1,4 +1,4 @@
-![Video cover image](./cover.jpg)
+![Video cover image](./cover.jpg "cover photo")
 How can a person who owns a car, say that cars do not exist?
 
 You’ll be surprised, so watch till the end.

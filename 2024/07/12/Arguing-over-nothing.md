@@ -1,4 +1,4 @@
-![Video cover image](./cover2.jpg)
+![Video cover image](./cover2.jpg "cover photo")
 “Are you saying that only those who believe in Jesus will enter Heaven?”
 
 “Yes.”

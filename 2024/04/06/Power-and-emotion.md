@@ -1,4 +1,4 @@
-![Video cover image](cover.jpg)
+![Video cover image](cover.jpg "cover photo")
 Have you ever seen a new superhero struggling to control their power?
 
 That kind of power is usually of little use as it comes on when one least expects and leaves just as it came.

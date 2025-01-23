@@ -1,4 +1,4 @@
-![cover photo](./cover.jpg)
+![cover photo](./cover.jpg "cover photo")
 
 What would you do if a billionaire offered you a million dollars to
 kneel to him or her.

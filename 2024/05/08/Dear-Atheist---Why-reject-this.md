@@ -1,4 +1,4 @@
-![Video cover image](cover.jpg)
+![Video cover image](cover.jpg "cover photo")
 #dearatheist #challenge #christian #faith #apologetics #atheist
 
 I bought a parcel of land in Ohio for about four hundred thousand dollars.

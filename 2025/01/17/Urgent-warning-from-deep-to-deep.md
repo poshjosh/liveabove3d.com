@@ -1,4 +1,4 @@
-![Video cover image](./cover.jpg)
+![Video cover image](./cover.jpg "cover photo")
 Do you know that fourth dimension beings (or spirits), are not permitted, to interact with humans?
 
 This is for the safety of humans - however, some spirits disobey.

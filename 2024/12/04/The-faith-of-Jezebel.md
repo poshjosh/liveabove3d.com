@@ -1,4 +1,4 @@
-![Video cover image](./cover.jpg)
+![Video cover image](./cover.jpg "cover photo")
 Remember Jezebel - the evil wife of king Ahab, in the bible?
 
 There’s one thing she did better than Elijah - the prophet of Yahweh.

@@ -1,4 +1,4 @@
-![Video cover image](./cover.jpg)
+![Video cover image](./cover.jpg "cover photo")
 Dear Christian,
 
 Jesus has paid the cost of all our sins, even our future sins.

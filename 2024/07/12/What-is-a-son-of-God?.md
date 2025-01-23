@@ -1,4 +1,4 @@
-![Video cover image](./cover.jpg)
+![Video cover image](./cover.jpg "cover photo")
 Have you met - a son of God?
 
 What exactly - is a son of God?

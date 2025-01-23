@@ -1,4 +1,4 @@
-![Video cover image](./cover.jpg)
+![Video cover image](./cover.jpg "cover photo")
 Crying and begging doesn’t work well with God.
 
 Here we go.

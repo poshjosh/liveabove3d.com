@@ -1,4 +1,4 @@
-![Video cover image](cover.jpg)
+![Video cover image](cover.jpg "cover photo")
 #moneychallenge #challenge #money #wordoffaith #christian #faith #yahweh
 
 Yahweh doesn’t want you - to save money.

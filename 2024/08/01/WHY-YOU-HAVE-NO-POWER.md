@@ -1,4 +1,4 @@
-![Video cover image](./cover.jpg)
+![Video cover image](./cover.jpg "cover photo")
 Is it possible to win your battle, by winning another’s battle? 
 
 You’ll be surprised.

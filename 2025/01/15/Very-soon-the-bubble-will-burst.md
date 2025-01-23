@@ -1,4 +1,4 @@
-![Video cover image](./cover.jpg)
+![Video cover image](./cover.jpg "cover photo")
 Dear atheist
 
 Over the coming years, humans will be gradually exposed to non-human realities.

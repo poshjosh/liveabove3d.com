@@ -1,4 +1,4 @@
-![Video cover image](./cover.jpg)
+![Video cover image](./cover.jpg "cover photo")
 A Galactic Federation?
 
 No – a council of the holy ones.

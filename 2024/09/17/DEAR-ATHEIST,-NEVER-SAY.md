@@ -1,4 +1,4 @@
-![Video cover image](./cover-2.jpg)
+![Video cover image](./cover-2.jpg "cover photo")
 Dear atheist, after watching this video, you will never again ask the question:
 
 “Do you mean that billions of people who are not Christians will go to hell?”

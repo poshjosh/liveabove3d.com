@@ -1,4 +1,4 @@
-![Video cover image](./cover.jpg)
+![Video cover image](./cover.jpg "cover photo")
 Have you tried everything to change your situation, without success?
 
 Here is a simple way out – it’ll surprise you.

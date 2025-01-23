@@ -1,4 +1,4 @@
-![Video cover image](cover.jpg)
+![Video cover image](cover.jpg "cover photo")
 If you think the floor is lava, when it is just wood, then your behaviour will be restricted by the lie in your mind.
 
 You are not free; to walk around; freely.

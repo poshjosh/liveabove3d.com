@@ -1,4 +1,4 @@
-![Video cover image](./cover.jpg)
+![Video cover image](./cover.jpg "cover photo")
 #cern #portal #lucifer #future #stargate #eve #adam #christian #faith #yahweh #god
 
 Who is the cleverest of them all?

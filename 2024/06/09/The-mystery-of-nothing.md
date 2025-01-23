@@ -1,4 +1,4 @@
-![Video cover image](./cover.jpg)
+![Video cover image](./cover.jpg "cover photo")
 #mysterynothing #nothing #universe #fourthdimension #christian #faith #yahweh #god
 
 Does nothing exist?

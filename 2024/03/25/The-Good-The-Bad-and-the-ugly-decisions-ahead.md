@@ -1,4 +1,4 @@
-![Video cover image](cover.jpg)
+![Video cover image](cover.jpg "cover photo")
 You are the head of the German Army, and you hear that Hitler plans to consolidate power by murdering his opponents.
 
 You know that a tough counter action would be required to stop such a murderous plan.

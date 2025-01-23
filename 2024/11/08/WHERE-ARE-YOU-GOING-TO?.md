@@ -1,4 +1,4 @@
-![Video cover image](./cover.jpg)
+![Video cover image](./cover.jpg "cover photo")
 We set our thermostat to the temperature we want. 
 
 If the temperature is 5 degrees and we want it to be 20 degrees, 

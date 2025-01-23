@@ -1,4 +1,4 @@
-![Video cover image](cover.jpg)
+![Video cover image](cover.jpg "cover photo")
 #mastersspeech #wordoffaith #christian #faith #spell #witch #wizard #yahweh
 
 In Season Six, Episode 3 of Monk (the TV show) a spell was being cast on Peter Magneri, a very wealthy man.

@@ -1,4 +1,4 @@
-![Video cover image](./cover.jpg)
+![Video cover image](./cover.jpg "cover photo")
 You are told that a large army is approaching your village.
 
 However, you reply: “I need proof of the army before I believe”.

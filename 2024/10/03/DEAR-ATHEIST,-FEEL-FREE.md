@@ -1,4 +1,4 @@
-![Video cover image](./cover.jpg)
+![Video cover image](./cover.jpg "cover photo")
 Christians say that if you don’t submit to Jesus, you will be punished.
 
 If we are created with free will, why should we be punished for not submitting?

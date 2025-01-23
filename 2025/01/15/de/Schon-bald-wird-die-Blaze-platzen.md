@@ -1,13 +1,4 @@
----
-path: "./sites/liveabove3d.com/content/blog/2025/01/15/de/Schon-bald-wird-die-Blaze-platzen.md"
-date: "2025-01-15"
-title: "Schon bald wird die Blaze platzen"
-description: "LiveAbove3D - Schon bald wird die Blaze platzen"
-tags: ["Schon" "bald" "wird" "Blaze" "platzen"]
-lang: "de-de"
----
-
-![Video cover image](../cover.jpg)
+![Video cover image](../cover.jpg "cover photo")
 
 Lieber Atheist
 

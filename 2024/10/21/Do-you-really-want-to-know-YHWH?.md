@@ -1,4 +1,4 @@
-![Video cover image](./cover.jpg)
+![Video cover image](./cover.jpg "cover photo")
 Nothing anyone says or does can take away from the truth that God loves you.
 
 No matter how horrible you have become, God is waiting with open hands and will be the one responsible for making you better.

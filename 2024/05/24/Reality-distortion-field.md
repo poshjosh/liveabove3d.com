@@ -1,4 +1,4 @@
-![Video cover image](cover.jpg)
+![Video cover image](cover.jpg "cover photo")
 #stevejobs #miracles #wordoffaith #christian #faith #yahweh
 
 You pray and nothing happens.

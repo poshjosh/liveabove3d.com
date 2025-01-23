@@ -1,4 +1,4 @@
-![Video cover image](./cover.jpg)
+![Video cover image](./cover.jpg "cover photo")
 If you think drinking is a sin, then it is.
 
 If you think drinking is not a sin, then it is not.

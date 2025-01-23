@@ -1,4 +1,4 @@
-![Video cover image](./cover.jpg)
+![Video cover image](./cover.jpg "cover photo")
 Does a creator have the right to determine how its creation should behave?
 
 I hope your answer remains the same, by the end of this video.

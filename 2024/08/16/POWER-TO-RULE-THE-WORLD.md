@@ -1,4 +1,4 @@
-![Video cover image](./cover.jpg)
+![Video cover image](./cover.jpg "cover photo")
 Why is AI the perfect platform - to rule the world?
 
 Here we go.

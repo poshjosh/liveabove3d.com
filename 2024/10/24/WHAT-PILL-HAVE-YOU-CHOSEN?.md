@@ -1,4 +1,4 @@
-![Video cover image](./cover.jpg)
+![Video cover image](./cover.jpg "cover photo")
 They keep telling you, that you need to be cured of a deadly illness.
 
 You don’t feel sick, but the cure is free.

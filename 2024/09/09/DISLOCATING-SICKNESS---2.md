@@ -1,4 +1,4 @@
-![Video cover image](./cover.jpg)
+![Video cover image](./cover.jpg "cover photo")
 Part 1 - https://www.youtube.com/shorts/VXC2P8wpfrY
 https://www.tiktok.com/@live.above.3d/video/7412526798644202785
 

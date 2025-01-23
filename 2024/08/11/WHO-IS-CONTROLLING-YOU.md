@@ -1,4 +1,4 @@
-![Video cover image](./cover.jpg)
+![Video cover image](./cover.jpg "cover photo")
 Who is controlling you?
 
 God asked Adam a question in the garden of Eden: “Who told you?” - Genesis 3 verse 11.

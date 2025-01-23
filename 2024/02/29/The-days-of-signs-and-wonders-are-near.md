@@ -1,4 +1,4 @@
-![Video cover image](./cover.jpg)
+![Video cover image](./cover.jpg "cover photo")
 The days of signs and wonders are near.
 
 Thousands of years ago, signs and wonders were on display at the national and global level.

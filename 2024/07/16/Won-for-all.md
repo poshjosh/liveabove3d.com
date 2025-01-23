@@ -1,4 +1,4 @@
-![Video cover image](./cover.jpg)
+![Video cover image](./cover.jpg "cover photo")
 It takes looking away from Christ – to be angry.
 
 To be sad - you have to study - the problem.

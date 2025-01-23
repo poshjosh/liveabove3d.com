@@ -1,4 +1,4 @@
-![Video cover image](./cover.jpg)
+![Video cover image](./cover.jpg "cover photo")
 See if you can solve this riddle.
 
 Two persons enter a room, then exit it and tell us what they see.

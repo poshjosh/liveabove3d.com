@@ -1,4 +1,4 @@
-![Video cover image](./cover.jpg)
+![Video cover image](./cover.jpg "cover photo")
 I want you to wake up smiling.
 
 I want you to go through life laughing.
