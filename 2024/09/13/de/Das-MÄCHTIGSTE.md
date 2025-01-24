@@ -1,5 +1,9 @@
 ![Video cover image](../cover.jpeg "cover-photo")
 
+Was du bist - Oh Mann;
+
+Wer hat dich verzaubert?
+
 Du trampelst auf kostbaren Geschenken herum.
 
 Wussten Sie, dass das Universum durch Worte erschaffen wurde?

@@ -1,5 +1,7 @@
 ![Video cover image](../cover.jpg "cover photo")
 
+Macht – um Ihr Leben zu verändern?
+
 Lass es uns herausfinden.
 
 Die Macht, die Jesus vom Tod auferweckte, steht allen Christen zur Verfügung – Epheser 1:17-21.

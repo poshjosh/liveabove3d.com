@@ -1,5 +1,7 @@
 ![Video cover image](../cover.jpg "cover photo")
 
+Hast du alles versucht, um deine Situation zu ändern, ohne Erfolg?
+
 Hier ist ein einfacher Ausweg – er wird Sie überraschen.
 
 Hmmm.

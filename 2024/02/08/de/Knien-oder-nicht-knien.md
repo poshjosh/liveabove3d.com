@@ -1,5 +1,7 @@
 ![cover photo](../cover.jpg "cover photo")
 
+Was würden Sie tun, wenn Ihnen ein Milliardär eine Million Dollar anbieten würde, damit Sie vor ihm oder ihr niederknien?
+
 Was würden Donald Trump, Greta Thunberg oder Elon Musk tun?
 
 **Hallo und willkommen bei: Live Above 3D.**

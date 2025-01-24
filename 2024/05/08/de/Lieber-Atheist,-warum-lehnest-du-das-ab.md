@@ -67,3 +67,5 @@ Facebook: /www.facebook.com/profile.php?id=100092339087423
 #viral #foryou #LiveAbove3D #god #jesus #ChristianApologetics #LoveOfGod #FaithAndReason #TruthInChristianity #ScienceAndFaith #ChristianityExplained #BelieveInJesus #ReasonsForFaith #BeweiseFürGott #Christentum verstehen #GlaubeVsWissenschaft #Wahrheit suchen #LogikUndGlaube #Christentum101 #Atheismus in Frage stellen #Mythen entlarven #GottUndWissenschaft #Glauben entdecken #christlichleben #gesegnet #Hoffnung #Inspiration #BeyondThePhysical
 
 @LiveAbove3D @samshamoun @dailydoseofwisdom @Empathetic_Mindfulness @SpaceRewind @technoplusmedia @Cosmoknowledge @themessagechannel1 @CuriositySp @veritasium @kapchatfield.07 @ken.arrington @tedtoks @the.anonymous.prophet @offthekirbhe.anonymous.prophet @offthekirb
+
+#dearatheist #Herausforderung #christlich #Glaube #Apologetik #Atheist

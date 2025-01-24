@@ -1,3 +1,5 @@
+Wussten Sie, dass jeder ausreichende Fortschritt die Religion untergraben wird?
+
 Was hat das mit dem Malzeichen des Tieres oder der Zahl 666 zu tun?
 
 <s>Wir werden diese Fragen beantworten und es ist nicht das, was Sie erwarten.</s>

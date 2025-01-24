@@ -1,5 +1,7 @@
 ![Video cover image](../cover.jpg "cover photo")
 
+Wer wird in den Himmel kommen?
+
 Was ist mit der Verzückung?
 
 Hierzu sagte Jesus in Johannes 15:6, dass unfruchtbare Christen ins Feuer geworfen würden.

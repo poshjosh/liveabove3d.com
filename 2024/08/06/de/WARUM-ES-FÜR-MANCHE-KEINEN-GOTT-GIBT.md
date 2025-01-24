@@ -1,5 +1,7 @@
 ![Video cover image](../cover.jpg "cover photo")
 
+Hat ein Schöpfer das Recht zu bestimmen, wie sich seine Schöpfung verhalten soll?
+
 Ich hoffe, dass deine Antwort am Ende dieses Videos dieselbe bleibt.
 
 Hmmm.
