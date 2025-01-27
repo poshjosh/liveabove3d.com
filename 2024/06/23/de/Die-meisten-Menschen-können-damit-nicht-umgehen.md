@@ -28,7 +28,7 @@ Es gibt jedoch nur einen Grund, der Sinn macht, und zwar dieser:
 
 „Welche Bedingungen sind daran geknüpft, dass ich dieses Erbe annehme?“
 
-u~~~ u fragte ich und mir wurde gesagt, dass ich mich einem einfachen Verhaltenskodex unterwerfen müsse:
+ fragte ich und mir wurde gesagt, dass ich mich einem einfachen Verhaltenskodex unterwerfen müsse:
 
 „Andere lieben“
 

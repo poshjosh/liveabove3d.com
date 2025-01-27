@@ -56,7 +56,7 @@ Genesis 3:11
 
 2. Korinther 5:21
 
-u~~~ u Römer 3:21-22
+ Römer 3:21-22
 
 Jesaja 53:5
 

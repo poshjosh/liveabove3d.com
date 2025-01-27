@@ -70,7 +70,7 @@ MEHR ERFAHREN
 
 Website: www.liveabove3d.com
 
-u~~~ u YouTube: www.youtube.com/@live.above.3d
+ YouTube: www.youtube.com/@live.above.3d
 
 TikTok: www.tiktok.com/@live.above.3d
 

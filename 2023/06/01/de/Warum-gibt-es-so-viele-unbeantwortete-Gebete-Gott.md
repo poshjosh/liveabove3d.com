@@ -916,7 +916,7 @@ Für sich selbst
 
 Für andere
 
-Gebet für Wohlstand u~~~ u
+Gebet für Wohlstand 
 
 Gebet zur Befriedigung sozialer Bedürfnisse (Ehemann, Kind usw.)
 

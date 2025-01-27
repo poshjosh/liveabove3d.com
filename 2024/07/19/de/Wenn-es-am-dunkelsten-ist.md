@@ -84,7 +84,7 @@ Facebook: www.facebook.com/profile.php?id=100092339087423
 
 BIBELVERSE
 
-Sogar das Geheimnis, das seit Jahrhunderten und Generationen verborgen war, jetzt aber seinen Heiligen offenbart wird: u~~~ u
+Sogar das Geheimnis, das seit Jahrhunderten und Generationen verborgen war, jetzt aber seinen Heiligen offenbart wird: 
 
 Wem Gott den Reichtum der Herrlichkeit dieses Geheimnisses unter den Heiden offenbaren würde; Das ist Christus in euch, die Hoffnung der Herrlichkeit:
 

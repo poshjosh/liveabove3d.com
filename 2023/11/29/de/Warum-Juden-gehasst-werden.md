@@ -110,7 +110,7 @@ Wenn Sie nicht alles verstehen oder ablehnen, was ich gerade erklärt habe, kön
 
 **<u>Bibelverse</u>**
 
-u~~~ u **<sup>5 </sup>**Und Joseph hatte einen Traum, und er erzählte ihn seinen
+ **<sup>5 </sup>**Und Joseph hatte einen Traum, und er erzählte ihn seinen
 
 Brüdern; und sie hassten ihn noch mehr.
 
@@ -186,7 +186,7 @@ Deuteronomium 7:6
 
 **Denn du hast dir dein Volk Israel bestätigt, dass es ein Volk für dich sei für immer, und du, Herr, bist ihr Gott geworden.**
 
-u~~~ u 2. Samuel 7:24
+ 2. Samuel 7:24
 
 , damit er in der Evangeliumszeit der Fülle der Zeiten alles in einem versammeln möge in Christus, beides, was im Himmel ist, und
 

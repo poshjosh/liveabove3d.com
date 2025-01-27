@@ -70,6 +70,6 @@ Facebook: /www.facebook.com/profile.php?id=100092339087423
 
 @LiveAbove3D
 
-@samshamoun u~~~ u @dailydoseofwisdom@samshamoun
+@samshamoun  @dailydoseofwisdom@samshamoun
 
 @dailydoseofwisdom

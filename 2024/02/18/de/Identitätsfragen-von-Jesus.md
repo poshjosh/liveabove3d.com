@@ -170,7 +170,7 @@ Die Juden antworteten ihm und sprachen: Für ein gutes Werk steinigen wir dich n
 
 Johannes 10:33
 
-Der, da er in der Gestalt Gottes war, es nicht für einen Raub hielt, mit Gott gleich zu sein: u~~~ u
+Der, da er in der Gestalt Gottes war, es nicht für einen Raub hielt, mit Gott gleich zu sein: 
 
 Aber er machte sich zu keinem Ansehen und nahm die Gestalt eines
 

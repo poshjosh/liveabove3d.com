@@ -36,7 +36,7 @@ Er sagte.
 
 „Ich bin“
 
-#Probleme #Tränen #Schreie #Flehen #Jesus #Christ #Liebe #Glaube #Jahwe #Gott u~~~ u
+#Probleme #Tränen #Schreie #Flehen #Jesus #Christ #Liebe #Glaube #Jahwe #Gott 
 
 #viral #foryou #LiveAbove3D #god #jesus #ChristianApologetics #LoveOfGod #FaithAndReason #TruthInChristianity #ScienceAndFaith #ChristianityExplained #BelieveInJesus #ReasonsForFaith #EvidenceForGod #Christentum verstehen #FaithVsScience #SeekingTruth #LogicAndGlaube #Christianity101 #Atheismus in Frage stellen #Mythen entlarven #GodAndScience #Glauben entdecken #christliches Leben #selige #Hoffnung #inspiration #BeyondThePhysical
 

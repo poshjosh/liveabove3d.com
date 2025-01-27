@@ -64,7 +64,7 @@ Offenbarung 13 Vers 18: „Wer Verstand hat, zähle die Zahl des Tieres; denn es
 
 **<u>Bibelverse</u>**
 
-…Gott hat den Menschen nach seinem eigenen Bild erschaffen… u~~~ u
+…Gott hat den Menschen nach seinem eigenen Bild erschaffen… 
 
 Genesis 1:27
 

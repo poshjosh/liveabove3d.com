@@ -64,7 +64,7 @@ Matthäus 26:41
 
 Philipper 2:13
 
-Psalm 34:17 u~~~ u Hebräer 5:7 (ESV)
+Psalm 34:17  Hebräer 5:7 (ESV)
 
 Psalm 34:17
 

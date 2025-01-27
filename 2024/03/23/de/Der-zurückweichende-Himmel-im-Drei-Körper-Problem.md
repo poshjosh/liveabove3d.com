@@ -30,7 +30,7 @@ Website: http://liveabove3d.com
 
 Youtube: https://www.youtube.com/@live.above.3d
 
-Tiktok: https://www.tiktok.com/@live.above.3d u~~~ u Twitter: @live_above_3d https://twitter.com/live_above_3d
+Tiktok: https://www.tiktok.com/@live.above.3d  Twitter: @live_above_3d https://twitter.com/live_above_3d
 
 Reddit: live-above-3d https://www.reddit.com/user/live-above-3d
 

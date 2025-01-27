@@ -2,7 +2,7 @@
 
 **Während der Räumung meiner Wohnung.**
 
-u~~~ u ***Nachbar:*** (in Panik) Sie werfen deine Sachen auf die
+ ***Nachbar:*** (in Panik) Sie werfen deine Sachen auf die
 
 Straße!
 

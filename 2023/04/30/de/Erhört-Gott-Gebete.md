@@ -168,7 +168,7 @@ Wir werden mehr Licht aus der Bibel enthüllen, das Sie in die Lage versetzt,
 
 Glauben zu haben, um zu sagen...:
 
-Wahrheit Nummer 4. u~~~ u
+Wahrheit Nummer 4. 
 
 1. **Das Königreich Gottes ist legalistisch**
 
@@ -310,7 +310,7 @@ Für sich selbst
 
 Für andere
 
-Gebet für Wohlstand u~~~ u
+Gebet für Wohlstand 
 
 Gebet zur Befriedigung sozialer Bedürfnisse (Ehemann, Kind usw.)
 

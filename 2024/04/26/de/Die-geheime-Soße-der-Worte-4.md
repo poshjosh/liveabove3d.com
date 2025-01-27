@@ -54,7 +54,7 @@ ERFAHREN SIE MEHR
 
 Website: http://liveabove3d.com
 
-u~~~ u Youtube: https://www.youtube.com/@live.above.3d
+ Youtube: https://www.youtube.com/@live.above.3d
 
 Tiktok: https://www.tiktok.com/@live.above.3d
 

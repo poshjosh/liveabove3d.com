@@ -56,7 +56,7 @@ Twitter: www.twitter.com/live_above_3d
 
 Reddit: www.reddit.com/user/live-above-3d
 
-u~~~ u Instagram: www.instagram.com/live.above.3d/
+ Instagram: www.instagram.com/live.above.3d/
 
 Facebook: www.facebook.com/profile.php?id=100092339087423
 

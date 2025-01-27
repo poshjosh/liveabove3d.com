@@ -120,7 +120,7 @@ Glücksspiel – Nein.
 
 Schnell reich werden – Nein.
 
-u~~~ u **Zwei – Das Akzeptable**
+ **Zwei – Das Akzeptable**
 
 Der akzeptable Weg, Geld zu verdienen, besteht darin, sein Geld an andere weiterzugeben.
 
