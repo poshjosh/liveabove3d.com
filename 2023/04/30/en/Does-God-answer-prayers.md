@@ -47,9 +47,6 @@ there a queue?
 
 We hope to answer these questions and more.
 
-*\[DISPLAY LOGO\] – Maybe some beautiful images and/or the questions to
-be answered.*
-
 **How does heaven handle our prayers?**
 
 -   Some would observe their lives and say: “You know what, God answers
@@ -507,7 +504,3 @@ health.
 
 If you made a terrible mistake, then cry oh God help me. That makes more
 sense.
-
-Questions
-
-You don’t need to repeat the prayer again and again.

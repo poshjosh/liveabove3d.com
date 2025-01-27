@@ -30,10 +30,6 @@ Es ist wichtig, dass wir verstehen, was „im geistigen Bereich“ vor sich geht
 
 Wir hoffen, diese und weitere Fragen beantworten zu können.
 
-*\[LOGO ANZEIGEN\] – Vielleicht werden ein paar schöne Bilder und/oder die Fragen an
-
-beantwortet.*
-
 **Wie geht es dem Himmel Unsere Gebete bearbeiten?**
 
 - Einige würden ihr Leben beobachten und sagen: „Weißt du was, Gott beantwortet dir einige Gebete. Allerdings ist das Kriterium für erhörte Gebete nicht ganz klar.“
@@ -381,7 +377,3 @@ Ein Ungläubiger, der dieses Gebet hört, könnte leicht denken, dass Gott böse
 Besonders wenn das, worum Sie Gott bitten, etwas ist, das jeder vernünftige Vater seinen Kindern freiwillig zur Verfügung stellt. Dinge wie Unterkunft und Gesundheit.
 
 Wenn du einen schrecklichen Fehler gemacht hast, dann weine „Oh Gott, hilf mir.“ Das ergibt mehr Sinn.
-
-Fragen
-
-Sie müssen das Gebet nicht immer wieder wiederholen.
