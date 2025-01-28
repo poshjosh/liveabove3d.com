@@ -152,7 +152,7 @@ Lass es mich im Kommentarbereich wissen.
 
 **<u>MEHR ERFAHREN</u>**
 
-https://youtu.be/Zz0_vwOu_ps u~ ~~u http://liveabove3d.com/2024/02/08/To-kneel-or-not-to-kneel/
+https://youtu.be/Zz0_vwOu_ps http://liveabove3d.com/2024/02/08/To-kneel-or-not-to-kneel/
 
 Website: <http://liveabove3d.com>
 

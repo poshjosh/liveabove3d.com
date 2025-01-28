@@ -26,7 +26,7 @@ Drei – Der perfekte Weg, Geld zu verdienen, ist: alles aufzugeben und Gott zu 
 
 „Jeder, der Häuser, Familie oder Ländereien um meines Namens willen verlassen hat, der wird es hundertfach empfangen und das ewige Leben ererben“ – Matthäus 19, Vers 29
 
-u~ ~~u Also; diene Gott; Oder hart arbeiten und hart geben.
+Also; diene Gott; Oder hart arbeiten und hart geben.
 
 Denken Sie daran:
 

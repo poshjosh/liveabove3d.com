@@ -170,7 +170,7 @@ In der Zwischenzeit ist Satan der Ankläger – Offenbarung 12 Verse 9 und 10 un
 
 Sacharja 3 Vers 1 bis 7.
 
-u~ ~~u In den Rechtssystemen auf der Erde werden Beweise von der Gegenseite geprüft, und
+In den Rechtssystemen auf der Erde werden Beweise von der Gegenseite geprüft, und
 
 Dies ist die Praxis im Himmel.
 
@@ -230,7 +230,7 @@ Liebe uns, hasse uns, mag uns, folge uns – tu es jetzt.
 
 live.above.3d@gmail.com
 
-u~ ~~u Tiktok:
+Tiktok:
 
 [<u>https://www.tiktok.com/@live.above.3d</u>](https://www.tiktok.com/@live.above.3d)
 

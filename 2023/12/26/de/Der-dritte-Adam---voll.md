@@ -340,7 +340,7 @@ Youtube: <https: //www.youtube.com/@live.above.3d>
 
 Instagram: <https://www.instagram.com/live.above.3d/>
 
-u~ ~~u Facebook: <https://www.facebook.com/profile.php?id=100092339087423>
+Facebook: <https://www.facebook.com/profile.php?id=100092339087423>
 
 Twitter: @live\_above\_3d <https://twitter.com/live_above_3d> u~~ ~u
 
@@ -386,7 +386,7 @@ Hebräer 1:1-3 u ~~~u
 
 **<sup>13 </sup>**Der uns von der Macht der Dunkelheit befreit hat und uns in das Königreich seines lieben Sohnes versetzt hat:
 
-u~ ~~u **<sup>14 </sup>**In dem wir Erlösung durch sein Blut haben, sogar die
+**<sup>14 </sup>**In dem wir Erlösung durch sein Blut haben, sogar die
 
 Vergebung der Sünden:
 
@@ -446,7 +446,7 @@ Und **Gott segnete sie, und Gott sprach zu ihnen**: Sei fruchtbar, und du vermeh
 
 Genesis 1:28
 
-**<sup>1</sup>** Nun **als Jesus geboren wurde** in Bethlehem in Judäa in u~ ~~u zur Zeit des Königs Herodes, **siehe, da kamen weise Männer aus dem Osten
+**<sup>1</sup>** Nun **als Jesus geboren wurde** in Bethlehem in Judäa in zur Zeit des Königs Herodes, **siehe, da kamen weise Männer aus dem Osten
 
 nach Jerusalem**,
 

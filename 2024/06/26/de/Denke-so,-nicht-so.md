@@ -32,7 +32,7 @@ Schließe dich Christus an – es erfordert Glauben – Wirken durch Liebe.
 
 BIBELVERSE
 
-u~ ~~u Römer 4:22 - 23
+Römer 4:22 - 23
 
 Galater 5:6
 

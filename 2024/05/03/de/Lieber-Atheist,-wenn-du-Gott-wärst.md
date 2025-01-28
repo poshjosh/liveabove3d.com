@@ -1,7 +1,5 @@
 ![Video cover image](../cover.jpg "cover photo")
 
-#lieber Theist #Herausforderung #christlich #Glaube #Apologetik #Atheist
-
 Lieber Atheist.
 
 Wie würdest du beweisen, dass du existierst – wenn du Gott wärst?
@@ -65,6 +63,8 @@ Reddit: live-above-3d www.reddit.com/user/live-above-3d
 Instagram: www .instagram.com/live.above.3d/
 
 Facebook: /www.facebook.com/profile.php?id=100092339087423
+
+#lieberatheist #Herausforderung #christlich #Glaube #Apologetik #Atheist
 
 #LiveAbove3D #god #jesus #ChristianApologetics #LoveOfGod #FaithAndReason #TruthInChristianity #ScienceAndFaith #ChristianityExplained #BelieveInJesus #ReasonsForFaith #EvidenceForGod #Christentum verstehen #GlaubeVsWissenschaft #Wahrheit suchen #LogikAndGlaube #Christentum101 #Atheismus hinterfragen #Mythen entlarven #GottAndWissenschaft #Glauben entdecken #christlichleben #gesegnet #Hoffnung #Inspiration #BeyondThePhysical
 

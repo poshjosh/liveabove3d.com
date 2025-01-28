@@ -1,5 +1,4 @@
 ![Video cover image](../cover.jpg "cover photo")
-#dearatheist #challenge #christian #faith #apologetics #atheist
 
 Dear Atheist.
 
@@ -62,6 +61,9 @@ Reddit: live-above-3d www.reddit.com/user/live-above-3d
 Instagram: www.instagram.com/live.above.3d/
 
 Facebook: /www.facebook.com/profile.php?id=100092339087423
+
+
+#dearatheist #challenge #christian #faith #apologetics #atheist
 
 #LiveAbove3D #god #jesus #ChristianApologetics #LoveOfGod #FaithAndReason #TruthInChristianity #ScienceAndFaith #ChristianityExplained #BelieveInJesus #ReasonsForFaith #EvidenceForGod #UnderstandingChristianity #FaithVsScience #SeekingTruth #LogicAndBelief #Christianity101 #QuestioningAtheism #DebunkingMyths #GodAndScience #DiscoveringFaith #christianliving #blessed #hope #inspiration #BeyondThePhysical
 

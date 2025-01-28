@@ -122,7 +122,7 @@ Trinity in Aktion.
 
 Einfach ausgedrückt bedeutet Dreieinigkeit:
 
-u~ ~~u Das Wort Gottes ist Gott.
+Das Wort Gottes ist Gott.
 
 Der Geist Gottes ist Gott.
 
@@ -220,7 +220,7 @@ Facebook:
 
 Johannes 14:8-9
 
-**<sup>1</sup>Im Anfang war das Wort, und das Wort war bei Gott, u~ ~~u und das Wort war Gott.**
+**<sup>1</sup>Im Anfang war das Wort, und das Wort war bei Gott, und das Wort war Gott.**
 
 <sup>2</sup>Dasselbe war am Anfang mit Gott.
 
