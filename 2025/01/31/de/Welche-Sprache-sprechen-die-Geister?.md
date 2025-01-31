@@ -1,4 +1,4 @@
-![Video cover image](./cover.jpg)
+![Video cover image](../cover.jpg)
 Welche Sprache sprechen Geister?
 
 Falsche Frage.
