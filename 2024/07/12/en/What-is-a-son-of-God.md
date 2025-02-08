@@ -136,7 +136,7 @@ John 14:12-14
 
 Romans 8:19-22
 
-2 Peter 3:9id=100092339087423
+2 Peter 3:9
 
 
 BIBLE VERSES

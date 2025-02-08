@@ -40,13 +40,13 @@ YouTube: www.youtube.com/@live.above.3d
 
 TikTok: www.tiktok.com/@live.above.3d
 
-Twitter: twitter.com/live_above_3d
+X: www.x.com/live_above_3d
 
 Reddit: www.reddit.com/user/live-above-3d
 
 Instagram: www.instagram.com/live.above.3d/
 
-Facebook: /www.facebook.com/profile.php?id=100092339087423
+Facebook: www.facebook.com/profile.php?id=100092339087423
 
 #viral #foryou #LiveAbove3D #god #jesus #ChristianApologetics #LoveOfGod #FaithAndReason #TruthInChristianity #ScienceAndFaith #ChristianityExplained #BelieveInJesus #ReasonsForFaith #EvidenceForGod #UnderstandingChristianity #FaithVsScience #SeekingTruth #LogicAndBelief #Christianity101 #QuestioningAtheism #DebunkingMyths #GodAndScience #DiscoveringFaith #christianliving #blessed #hope #inspiration #BeyondThePhysical
 
