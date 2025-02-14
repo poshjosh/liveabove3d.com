@@ -2,7 +2,7 @@
 
 Teil 1 - https://www.youtube.com/shorts/VXC2P8wpfrY
 
-https://www.tiktok.com/@live.above.3d/video/7412526798644202785 u ~~~u
+https://www.tiktok.com/@live.above.3d/video/7412526798644202785 
 
 In Teil 1 haben wir Worte verwendet, um Krankheit auszudrücken.
 

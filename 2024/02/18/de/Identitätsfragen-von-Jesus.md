@@ -8,7 +8,7 @@ Was würdest du tun?
 
 **Hallo und willkommen bei: Live Above 3D.**
 
-Wie würdest du beweisen, dass du ein Mann bist, wenn alle darauf bestehen, dich zu behandeln u~~ ~Du magst eine Frau.
+Wie würdest du beweisen, dass du ein Mann bist, wenn alle darauf bestehen, dich zu behandeln Du magst eine Frau.
 
 Was hat das mit Jesus zu tun?
 
@@ -112,7 +112,7 @@ Abonnieren Sie unbedingt – es wird Sie umhauen.
 
 **Zum Schluss der Kern der Sache.**
 
-Denken Sie daran, dass wir gesagt haben, dass Jesus eine neue Art von Wesen ist, für die wir kein u~~~ hatten u Standards.
+Denken Sie daran, dass wir gesagt haben, dass Jesus eine neue Art von Wesen ist, für die wir kein  hatten u Standards.
 
 Ja, Jesus hat eine neue Rasse auf der Erde ins Leben gerufen.
 
@@ -158,11 +158,11 @@ Twitter: @live\_above\_3d
 
 Reddit: live-above-3d < https://www.reddit.com/user/live-above-3d>
 
-Instagram: <https://www.instagram.com/live.above.3d/>
+Instagram: <https://www.instagram.com/live.above.3d>
 
 Facebook:
 
-[<u>https://www.facebook.com/profile.php?id=100092339087423</u>](https://www.facebook .com/profile.php?id=100092339087423)
+[<u>https://www.facebook.com/profile/100092339087423</u>](https://www.facebook .com/profile/100092339087423)
 
 **<u>BIBELVERSE</u>**
 

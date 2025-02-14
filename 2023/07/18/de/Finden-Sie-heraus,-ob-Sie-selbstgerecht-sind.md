@@ -10,13 +10,13 @@ Youtube:
 
 Facebook:
 
-[<u>https://www.facebook.com/profile.php?id=100092339087423</u>](https://www.facebook.com/profile.php?id=100092339087423)
+[<u>https://www.facebook.com/profile/100092339087423</u>](https://www.facebook.com/profile/100092339087423)
 
-u ~~~u Twitter: @live\_above\_3d
+ Twitter: @live\_above\_3d
 
 [<u>https://twitter.com/live\_above\_3d</u>](https://twitter.com/live_above_3d)
 
-Hallo und willkommen bei Live Above 3D u ~~~u
+Hallo und willkommen bei Live Above 3D 
 
 Heute werden wir testen, ob wir selbstgerecht sind. Danach werden wir unsere Herzen auf die Gerechtigkeit Gottes ausrichten.
 

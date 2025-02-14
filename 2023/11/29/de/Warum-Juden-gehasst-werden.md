@@ -4,9 +4,9 @@ Tiktok: <https://www.tiktok.com/@live.above .3d>
 
 Youtube: <https://www.youtube.com/@live.above.3d>
 
-Instagram: <https://www.instagram.com/live.above.3d/>
+Instagram: <https://www.instagram.com/live.above.3d>
 
-Facebook: <https://www.facebook.com/profile.php?id=100092339087423> u~ ~~u
+Facebook: <https://www.facebook.com/profile/100092339087423> 
 
 Twitter: @live\_above\_3d <https://twitter.com/live_above_3d>
 
@@ -116,7 +116,7 @@ Brüdern; und sie hassten ihn noch mehr.
 
 **<sup>6 </sup>**Und er sagte zu ihnen: Hört, ich bitte euch, diesen Traum, den ich geträumt habe:
 
-u ~~~u **<sup>7 </sup>**Denn siehe, wir banden Garben auf dem Feld, und siehe, meine Garbe richtete sich auf und stand auch aufrecht; Und siehe, deine Garben standen umher und huldigten meiner Garbe.
+ **<sup>7 </sup>**Denn siehe, wir banden Garben auf dem Feld, und siehe, meine Garbe richtete sich auf und stand auch aufrecht; Und siehe, deine Garben standen umher und huldigten meiner Garbe.
 
 **<sup>8 </sup>**Und seine Brüder sprachen zu ihm: Solltest du wirklich über uns herrschen? Oder sollst du wirklich über uns herrschen? Und sie hassten ihn noch mehr wegen seiner Träume und wegen seiner Worte.
 
@@ -174,7 +174,7 @@ Dass die Söhne Gottes sahen, dass die Töchter der Menschen schön waren; Und s
 
 Genesis 6:2
 
-**<sup>3 </sup>**Und Abram fiel auf sein Angesicht, und Gott redete mit ihm, u~~ ~u sagst:
+**<sup>3 </sup>**Und Abram fiel auf sein Angesicht, und Gott redete mit ihm,  sagst:
 
 **<sup>4 </sup>**Was mich betrifft, siehe, mein Bund ist mit dir, und du wirst ein Vater vieler sein Nationen.
 

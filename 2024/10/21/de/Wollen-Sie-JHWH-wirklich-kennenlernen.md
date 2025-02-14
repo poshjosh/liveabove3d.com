@@ -8,7 +8,7 @@ Abonnieren Sie, um mit der Kraft der Erkenntnis Christi erfüllt zu werden.
 
 #trending #christlicheAntworten #Yahweh #Christus #Rebe #Jesus #Christian #Liebe #Glaube Gott
 
-BIBELVERSE (Legacy Standard Bible) u~ ~~u
+BIBELVERSE (Legacy Standard Bible) 
 
 Niemand hat größere Liebe als dieser, der sein Leben für seine Freunde gibt.
 
@@ -38,7 +38,7 @@ Römer 5:12
 
 1. Korinther 2,8
 
-Denn auch Christus hat ein für alle Mal für die Sünden gelitten, der Gerechte für die Ungerechten, damit er euch zu Gott führe ~u
+Denn auch Christus hat ein für alle Mal für die Sünden gelitten, der Gerechte für die Ungerechten, damit er euch zu Gott führe
 
 1. Petrus 3:18
 

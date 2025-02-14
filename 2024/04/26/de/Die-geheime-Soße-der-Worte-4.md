@@ -44,7 +44,7 @@ BIBELVERSE
 
 Meine Schafe hören meine Stimme, und ich kenne sie, und sie folgen mir:
 
-Johannes 10:27 u ~~~u
+Johannes 10:27 
 
 Doch wenn er, der Geist der Wahrheit, kommt, wird er euch in die ganze Wahrheit führen; denn er wird nicht von sich selbst sprechen; aber was auch immer er hören wird, das wird er reden; und er wird euch die Zukunft kundtun.
 
@@ -62,8 +62,8 @@ Twitter: @live_above_3d https://twitter.com/live_above_3d
 
 Reddit: live-above-3d https://www.reddit.com/user/ live-above-3d
 
-Instagram: https://www.instagram.com/live.above.3d/
+Instagram: https://www.instagram.com/live.above.3d
 
-Facebook: https://www.facebook.com/profile.php?id=100092339087423
+Facebook: https://www.facebook.com/profile/100092339087423
 
 ile.php?id=100092339087423

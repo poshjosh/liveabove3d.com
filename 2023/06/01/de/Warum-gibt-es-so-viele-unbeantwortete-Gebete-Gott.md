@@ -2,7 +2,7 @@
 
 **Willkommen bei: Live Above 3D**
 
-u~~ ~u **Heute werde ich dir verraten, warum es so viele unbeantwortete Gebete gibt.**
+ **Heute werde ich dir verraten, warum es so viele unbeantwortete Gebete gibt.**
 
 Haben wir nicht alles gehört?
 
@@ -118,7 +118,7 @@ Sie beten, um eine 100-Millionen-Dollar-Lotterie zu gewinnen, und der Himmel erh
 
 An diesem Punkt musst du deinen Gewinn vom Himmel auf die Erde bringen und
 
-das erfordert einen Beweis des Glaubens, und im Fall von Geld wird der Glaube gezeigt u~~~ du, indem du gibst.
+das erfordert einen Beweis des Glaubens, und im Fall von Geld wird der Glaube gezeigt  du, indem du gibst.
 
 Kein Wunder, dass die Bibel in Lukas 6, Vers 38 sagt: „Gib, und es wird dir gegeben werden.“
 
@@ -138,13 +138,13 @@ Tiktok :
 
 [<u>https://www.tiktok.com/@live.above.3d</u>](https://www.tiktok.com/@live.above.3d)
 
-u~~ ~u Youtube:
+ Youtube:
 
 [<u>https://www.youtube.com/@live.above.3d</u>](https://www.youtube.com/@live.above. 3d)
 
 Facebook:
 
-[<u>https://www.facebook.com/profile.php?id=100092339087423</u>](https://www.facebook.com/profile .php?id=100092339087423)
+[<u>https://www.facebook.com/profile/100092339087423</u>](https://www.facebook.com/profile .php?id=100092339087423)
 
 Twitter: @live\_above\_3d
 
@@ -182,7 +182,7 @@ Nachdem du also für gute Gesundheit gebetet hast, denkst du, dass du geheilt we
 
 Der Gegner hat bewiesen, dass Ihre Beweise für einen guten Gesundheitszustand falsch sind und die Beweise sind vor Gericht nicht mehr zulässig – Ihr Antrag auf Heilung wurde abgewiesen.
 
-Die wichtige Frage ist diese: Wie bekommen wir Glauben, der dem U~~~u-Angriff, den Lügen des Teufels standhält?
+Die wichtige Frage ist diese: Wie bekommen wir Glauben, der dem -Angriff, den Lügen des Teufels standhält?
 
 Die einfache Antwort ist, mit dem Geist erfüllt zu bleiben, damit Ihr
 
@@ -234,13 +234,13 @@ Tiktok:
 
 [<u>https://www.tiktok.com/@live.above.3d</u>](https://www.tiktok.com/@live.above.3d)
 
-u~~ ~u Youtube:
+ Youtube:
 
 [<u>https://www.youtube.com/@live.above.3d</u>](https://www.youtube.com/@live.above. 3d)
 
 Facebook:
 
-[<u>https://www.facebook.com/profile.php?id=100092339087423</u>](https://www.facebook.com/profile .php?id=100092339087423)
+[<u>https://www.facebook.com/profile/100092339087423</u>](https://www.facebook.com/profile .php?id=100092339087423)
 
 Twitter: @live\_above\_3d
 
@@ -310,7 +310,7 @@ In diesem Video haben wir gezeigt, dass es für eine fleischliche Person möglic
 
 In unserem vorherigen Video mit dem Titel: „Was soll das ganze Gerede um den Glauben, Gott?“ haben wir
 
-gezeigt, dass es für einen fleischlichen Menschen nicht möglich ist, spirituelle U~~~u zu empfangen Antworten.
+gezeigt, dass es für einen fleischlichen Menschen nicht möglich ist, spirituelle  zu empfangen Antworten.
 
 In unserem nächsten Video mit dem Titel: „Warum so viele unbeantwortete Gebete, Gott?“ Wir werden Ihnen alle praktischen Möglichkeiten zusammenstellen, um Ihre Gebete zu beantworten.
 
@@ -356,11 +356,11 @@ Youtube:
 
 [<u>https://www.youtube.com/@live.above.3d</u>](https://www.youtube.com/@live.above.3d)
 
-u~~ ~u Facebook:
+ Facebook:
 
-[<u>https://www.facebook.com/profile.php?id=100092339087423</u>](https://www.facebook.com/profile.php?id=100092339087423)
+[<u>https://www.facebook.com/profile/100092339087423</u>](https://www.facebook.com/profile/100092339087423)
 
-u ~~~u Twitter: @live\_above\_3d <u><https://twitter.com/live_above_3d>
+ Twitter: @live\_above\_3d <u><https://twitter.com/live_above_3d>
 
 </u>
 
@@ -398,7 +398,7 @@ Hier ist die Idee:
 
 <thead>
 
-<tr class="header"> u~~ ~u <th><strong>Gut</strong></th>
+<tr class="header">  <th><strong>Gut</strong></th>
 
 <th><strong>Besser</strong></th>
 
@@ -434,7 +434,7 @@ Hier ist die Idee:
 
 </tr>
 
-</tbody> u ~~~u </table>
+</tbody>  </table>
 
 **2 – Dinge ändern**
 
@@ -728,7 +728,7 @@ Erinnerst du dich, als die Jünger Jesu keinen Dämon austreiben konnten? Matth�
 
 Gebet und Fasten stärken den Glauben.
 
-Gebet und Fasten stärken deinen Glauben. Es verlagert Ihren Fokus von der U~~~u-Welt auf das Wort Gottes. Dies ist notwendig, da Glaube eine spirituelle Aktivität ist, bei der man (allen Widrigkeiten und Vernunft zum Trotz) auf das Wort Gottes reagiert.
+Gebet und Fasten stärken deinen Glauben. Es verlagert Ihren Fokus von der -Welt auf das Wort Gottes. Dies ist notwendig, da Glaube eine spirituelle Aktivität ist, bei der man (allen Widrigkeiten und Vernunft zum Trotz) auf das Wort Gottes reagiert.
 
 Zum Beispiel für die epileptischen Krämpfe mitten auf der Straße,
 
@@ -750,7 +750,7 @@ Sag nicht, dass deine Gebete nicht erhört werden, weil du ein Sünder bist, son
 
 Außerdem haben wir in unserem vorherigen Videotitel gezeigt: „Wie behandelt der Himmel unsere
 
--Gebete, Gott?“, dass du, wenn du irdisch gesinnt bist, das u~ nicht ergreifen kannst ~~u Antworten auf deine Gebete, wie sie im geistigen Bereich sind, das heißt: die vierte Dimension des Glaubens.
+-Gebete, Gott?“, dass du, wenn du irdisch gesinnt bist, das  nicht ergreifen kannst Antworten auf deine Gebete, wie sie im geistigen Bereich sind, das heißt: die vierte Dimension des Glaubens.
 
 Zusammenfassend
 
@@ -798,7 +798,7 @@ Himmel und Erde werden vergehen, aber meine Worte werden nicht vergehen. Markus
 
 13:31
 
-In Hebräer 6, Vers 17 steht geschrieben: „Darin will Gott mehr, um den Erben der Verheißung die Unveränderlichkeit seines Lebens zu zeigen.“ ~~~u Rat...
+In Hebräer 6, Vers 17 steht geschrieben: „Darin will Gott mehr, um den Erben der Verheißung die Unveränderlichkeit seines Lebens zu zeigen.“  Rat...
 
 Ich habe eine Reihe von Zeit- und auch Kopfpredigten gelesen, die die Tatsache nutzen, dass Gott tut, was Er will, um einige zu rechtfertigen „Zufälligkeit“ in Gottes Handeln.
 
@@ -840,13 +840,13 @@ Jetzt wo du es weißt; Basieren Sie Ihre Gebete auf der Wahrheit der Bibel, und 
 
 **<u>TEIL 3</u>**
 
-\*Selbst während ich mit dir spreche, gibt es Bereiche deines Lebens, die von dir geschützt werden ~~Du fürchtest.
+\*Selbst während ich mit dir spreche, gibt es Bereiche deines Lebens, die von dir geschützt werden. Du fürchtest.
 
 \*Kann eine Person, die nichts von den Geschehnissen im Geisterreich weiß, Ihren Glauben aufrechterhalten?
 
 \*Jeder Erfolg ohne Gott wird dir in der Zukunft Probleme bereiten. Diese Probleme scheinen auf den ersten Blick nicht immer offensichtlich zu sein. Ungeachtet der Komplexität Ihrer zukünftigen Probleme kann Gott die Dinge immer zu Ihrem Besten wenden.
 
-In diesem Teil geht es um Geduld. Ich nenne es beharrlichen Glauben. Es ist nötig, denn der Glaube wird auf die Probe gestellt. In den Rechtssystemen der Erde werden Beweise häufig von der Gegenseite geprüft. Das ist die Praxis im Himmel. Für euch Christen ist der Glaube ein Beweis und Satan ist unser Ankläger. Also stellt Satan mit der Zeit unseren Glauben auf die Probe. Um zu verstehen, wie Satan dies tut, finden Sie hier ein U~~~u-Gleichnis.
+In diesem Teil geht es um Geduld. Ich nenne es beharrlichen Glauben. Es ist nötig, denn der Glaube wird auf die Probe gestellt. In den Rechtssystemen der Erde werden Beweise häufig von der Gegenseite geprüft. Das ist die Praxis im Himmel. Für euch Christen ist der Glaube ein Beweis und Satan ist unser Ankläger. Also stellt Satan mit der Zeit unseren Glauben auf die Probe. Um zu verstehen, wie Satan dies tut, finden Sie hier ein -Gleichnis.
 
 Eine bestimmte Frau betete zu Gott um einen roten Lamborghini (Sie haben mich richtig gehört, Sie haben einen roten Lamborghini). Sie stellte sich einen Wohltäter vor, der den roten Lamborghini vor ihrem Haus parkte und die Schlüssel und Dokumente zur Eigentumsübertragung unter ihre Fußmatte fallen ließ. Ihr Beweis für die Annahme des Lamborghini war ihr Glaube an Christus, der auch gnädigerweise ihr Fürsprecher war.
 
@@ -924,7 +924,7 @@ Gebet für eine andere Person
 
 Junge Dame betet für einen bestimmten Ehemann
 
-u ~~~u Junge Dame, bete für ein guter Ehemann
+ Junge Dame, bete für ein guter Ehemann
 
 Junge Dame, bete darum, eine gute Ehefrau zu sein
 
@@ -972,7 +972,7 @@ Einige Arten von Gebeten
 
 Gott gebe mir John Uke als Ehemann
 
-u~~ ~u Gott gib mir einen guten Ehemann
+ Gott gib mir einen guten Ehemann
 
 Gott mache mich reich
 

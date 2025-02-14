@@ -4,9 +4,9 @@ Tiktok: <https://www.tiktok.com/@live.above. 3d>
 
 Youtube: <https://www.youtube.com/@live.above.3d>
 
-Instagram: <https://www.instagram.com/live.above.3d/>
+Instagram: <https://www.instagram.com/live.above.3d>
 
-Facebook: <https://www.facebook.com/profile.php?id=100092339087423> u~ ~~u
+Facebook: <https://www.facebook.com/profile/100092339087423> 
 
 Twitter: @live\_above\_3d <https://twitter.com/live_above_3d>
 
@@ -20,7 +20,7 @@ Ungefähr viertausend Jahre später wurde eine weitere Linie gegründet; dessen 
 
 In 1. Korinther 15:45 nennt die Bibel Jesus Christus den letzten Adam.
 
-Ungeachtet der Wortwahl der Bibel wird in den kommenden Jahren eine neue U~~~u-Linie etabliert.
+Ungeachtet der Wortwahl der Bibel wird in den kommenden Jahren eine neue -Linie etabliert.
 
 Die neue Linie wird versuchen, unsere derzeitigen Unvollkommenheiten zu verbessern.
 

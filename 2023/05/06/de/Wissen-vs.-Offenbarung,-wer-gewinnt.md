@@ -1,6 +1,6 @@
 <live.above.3d@gmail.com>
 
-**<u>Wissen vs. Offenbarung – wer gewinnt?</u>** u~ ~~u
+**<u>Wissen vs. Offenbarung – wer gewinnt?</u>** 
 
 Einem Wissenschaftler, der zufällig Christ ist, wurde die folgende Frage gestellt.
 

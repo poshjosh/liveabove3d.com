@@ -6,7 +6,7 @@ Was hat das mit der Dreifaltigkeit zu tun?
 
 **Hallo und willkommen bei: Live Above 3D.**
 
-Was hat die Unterscheidung von Menschen mit der Dreifaltigkeit zu tun und was u~~~ Du bist genau Trinity?
+Was hat die Unterscheidung von Menschen mit der Dreifaltigkeit zu tun und was  Du bist genau Trinity?
 
 **<u>TRINITÄT</u>**
 
@@ -56,7 +56,7 @@ Das bedeutet, dass unsere Erfahrungen sowie das Material, aus dem wir bestehen, 
 
 Das ist theoretisch vernünftig.
 
-Es ist jedoch nicht praktikabel, dass zwei Wesen genau die gleichen U~~~u-Erfahrungen teilen; Oder doch?
+Es ist jedoch nicht praktikabel, dass zwei Wesen genau die gleichen -Erfahrungen teilen; Oder doch?
 
 Stellen Sie sich vor, Tom und Jerry hätten die gleichen Atome.
 
@@ -198,7 +198,7 @@ Youtube:
 
 [https://www.youtube.com/@live.above.3d](https://www.youtube.com/@live.above.3d)
 
-Tiktok: u~~ ~u [https://www.tiktok.com/@live.above.3d](https://www.tiktok.com/@live.above.3d)
+Tiktok:  [https://www.tiktok.com/@live.above.3d](https://www.tiktok.com/@live.above.3d)
 
 Twitter: @live\_above\_3d
 
@@ -206,11 +206,11 @@ Twitter: @live\_above\_3d
 
 Reddit: live- oben-3d [https://www.reddit.com/user/live-above-3d](https://www.reddit.com/user/live-above-3d)
 
-Instagram: [https://www.instagram.com/live.above.3d/](https://www.instagram.com/live.above.3d/) u~~ ~u
+Instagram: [https://www.instagram.com/live.above.3d](https://www.instagram.com/live.above.3d) 
 
 Facebook:
 
-[https://www.facebook.com/profile.php?id=100092339087423](https://www.facebook.com/profile.php?id=100092339087423)
+[https://www.facebook.com/profile/100092339087423](https://www.facebook.com/profile/100092339087423)
 
 **< u>BIBELVERSE</u>**
 
@@ -228,7 +228,7 @@ Johannes 14:8-9
 
 Johannes 1:1-3
 
-Es ist der Geist, der lebendig macht; Das Fleisch nützt nichts: **Die Worte, die ich zu euch rede, sind Geist und Leben.** Johannes 6:63 ~~u Denn **wie er in seinem Herzen denkt, so ist er**: Iss und trink, spricht er zu dir; aber sein Herz ist nicht bei dir.
+Es ist der Geist, der lebendig macht; Das Fleisch nützt nichts: **Die Worte, die ich zu euch rede, sind Geist und Leben.** Johannes 6:63 Denn **wie er in seinem Herzen denkt, so ist er**: Iss und trink, spricht er zu dir; aber sein Herz ist nicht bei dir.
 
 Sprüche 23:7
 

@@ -124,7 +124,7 @@ Reddit: www.reddit.com/user/live-above-3d
 
 Instagram: www.instagram.com/live. oben.3d/
 
-Facebook: www.facebook.com/profile.php?id=100092339087423
+Facebook: www.facebook.com/profile/100092339087423
 
 BIBELVERSE
 
@@ -132,7 +132,7 @@ Markus 16:17-18
 
 Johannes 14:12-14
 
-u ~~~u Römer 8:19-22
+ Römer 8:19-22
 
 2. Petrus 3:9id=100092339087423
 
@@ -142,6 +142,6 @@ Markus 16:17-18
 
 Johannes 14:12-14
 
-u ~~~u Römer 8:19-22
+ Römer 8:19-22
 
 2. Petrus 3:9

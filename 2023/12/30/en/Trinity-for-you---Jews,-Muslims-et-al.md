@@ -237,10 +237,10 @@ Twitter: @live\_above\_3d
 
 Reddit: live-above-3d [https://www.reddit.com/user/live-above-3d](https://www.reddit.com/user/live-above-3d)
 
-Instagram: [https://www.instagram.com/live.above.3d/](https://www.instagram.com/live.above.3d/)
+Instagram: [https://www.instagram.com/live.above.3d](https://www.instagram.com/live.above.3d)
 
 Facebook:
-[https://www.facebook.com/profile.php?id=100092339087423](https://www.facebook.com/profile.php?id=100092339087423)
+[https://www.facebook.com/profile/100092339087423](https://www.facebook.com/profile/100092339087423)
 
 **<u>BIBLE VERSES</u>**
 

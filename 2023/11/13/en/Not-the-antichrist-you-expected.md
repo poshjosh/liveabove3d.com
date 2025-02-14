@@ -4,9 +4,9 @@ Tiktok: <https://www.tiktok.com/@live.above.3d>
 
 Youtube: <https://www.youtube.com/@live.above.3d>
 
-Instagram: <https://www.instagram.com/live.above.3d/>
+Instagram: <https://www.instagram.com/live.above.3d>
 
-Facebook: <https://www.facebook.com/profile.php?id=100092339087423>
+Facebook: <https://www.facebook.com/profile/100092339087423>
 
 Twitter: @live\_above\_3d <https://twitter.com/live_above_3d>
 

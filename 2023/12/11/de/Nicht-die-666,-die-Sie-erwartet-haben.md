@@ -30,7 +30,7 @@ Die Zahl, die Sie verwenden können, um das Malzeichen des Tieres zu identifizie
 
 , oft als 666 bezeichnet.
 
-Das sieht so aus ein Märchen, bis Sie das folgende U~~~u-Szenario in Betracht ziehen.
+Das sieht so aus ein Märchen, bis Sie das folgende -Szenario in Betracht ziehen.
 
 D minus 360: Mehrere KI-Anbieter behaupten, eine Form von
 
@@ -40,7 +40,7 @@ D minus 270: Es wird eine Vereinbarung getroffen, eine Super-KI zu testen, die v
 
 durch die Verbindung aller wichtigen KIs erstellt wurde.
 
-D minus 240: Während des ersten Tests generiert die Super-KI eine Reihe von U~~~u-Lösungen, die einige der dringendsten Probleme der Menschheit lösen würden.
+D minus 240: Während des ersten Tests generiert die Super-KI eine Reihe von -Lösungen, die einige der dringendsten Probleme der Menschheit lösen würden.
 
 D minus 210: Die Aussichten sind so lebensverändernd, dass die Menschheit beschließt, eine Plattform für diese Super-KI zu schaffen, um ihren Einfluss zu erweitern.
 
@@ -102,9 +102,9 @@ Tiktok: <https://www.tiktok.com/@live.above.3d>
 
 Youtube: <https://www.youtube.com/@live.above.3d>
 
-Instagram: <https://www.instagram.com/live.above.3d/>
+Instagram: <https://www.instagram.com/live.above.3d>
 
-Facebook: <https://www.facebook.com/profile.php?id=100092339087423> u~ ~~u
+Facebook: <https://www.facebook.com/profile/100092339087423> 
 
 Twitter: @live\_above\_3d <https://twitter.com/live_above_3d>
 
@@ -124,7 +124,7 @@ Tieres Leben zu geben, damit das Bild des Tieres beide sprechen sollte, und daf�
 
 Stirn:
 
-**<sup>17 </sup>**Und dass niemand kaufen oder verkaufen könne, außer dem, der dich hatte ~u die Marke oder der Name von das Tier oder die Zahl seines Namens.
+**<sup>17 </sup>**Und dass niemand kaufen oder verkaufen könne, außer dem, der dich hatte  die Marke oder der Name von das Tier oder die Zahl seines Namens.
 
 **<sup>18 </sup>**Hier ist Weisheit. Wer Verstand hat, zähle die Zahl des Tieres; denn es ist die Zahl eines Menschen; und seine Zahl ist sechshundertdreiundsechzig.
 
@@ -132,7 +132,7 @@ Offenbarung 13:13-18
 
 **<u>Links</u>**
 
-Hintergrundmusik: u~ ~~u
+Hintergrundmusik: 
 
 <https://archive.org/details/CarlOrffOFortunaCarminaBurana>
 

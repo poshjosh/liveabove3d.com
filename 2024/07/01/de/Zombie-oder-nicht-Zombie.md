@@ -46,7 +46,7 @@ Es ist schon eine Weile her und ich nutze oft, was zwischen meinem Freund und mi
 
 Es gibt jedoch noch etwas, was ich tun muss:
 
-„Bete für die, die dich missbrauchen und verfolgen“ – Matthäus 5, Vers 44. u~ ~~u
+„Bete für die, die dich missbrauchen und verfolgen“ – Matthäus 5, Vers 44. 
 
 Wow.
 
@@ -74,7 +74,7 @@ Shalom.
 
 #glaube #christlich #Liebe #Sünde #Hölle #Himmel #Glaube #Jahwe #Gott #höheres Leben
 
-BIBELVERSE u~ ~~u
+BIBELVERSE 
 
 Epheser 2:2, Matthäus 5:44, Johannes 16:33, Römer 12:2, Sprüche 4:23
 
@@ -92,7 +92,7 @@ Reddit: www.reddit.com/user/live-above-3d
 
 Instagram: www.instagram.com/live. oben.3d/
 
-Facebook: www.facebook.com/profile.php?id=100092339087423
+Facebook: www.facebook.com/profile/100092339087423
 
 #viral #foryou #LiveAbove3D #god #jesus #ChristianApologetics #LoveOfGod #FaithAndReason #TruthInChristianity #ScienceAndFaith #ChristianityExplained #BelieveInJesus #ReasonsForFaith #EvidenceForGod #Christianity verstehen #FaithVsScience #SeekingTruth #LogicAndBelief #Christentum101 #Atheismus hinterfragen #Mythen entlarven #GottAndWissenschaft #Glauben entdecken #christlichleben #gesegnet #Hoffnung #Inspiration #BeyondThePhysical
 
@@ -100,7 +100,7 @@ Facebook: www.facebook.com/profile.php?id=100092339087423
 
 BIBELVERSE
 
-u ~~~Du bist in der Vergangenheit diesem Lauf entsprechend gewandelt Welt, gemäß dem Fürsten der Macht der Luft, dem Geist, der jetzt in den Kindern des Ungehorsams wirkt:
+Du bist in der Vergangenheit diesem Lauf entsprechend gewandelt Welt, gemäß dem Fürsten der Macht der Luft, dem Geist, der jetzt in den Kindern des Ungehorsams wirkt:
 
 Epheser 2:2
 

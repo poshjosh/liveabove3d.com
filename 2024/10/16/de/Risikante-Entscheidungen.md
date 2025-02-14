@@ -90,7 +90,7 @@ Gott zeigt seine eigene Liebe zu uns, indem Christus für uns starb, als wir noc
 
 Römer 5,7-8
 
-Denn auch Christus hat ein für alle Mal für die Sünden gelitten, der Gerechte für die Ungerechten, damit er euch zu Gott führe ~~u
+Denn auch Christus hat ein für alle Mal für die Sünden gelitten, der Gerechte für die Ungerechten, damit er euch zu Gott führe
 
 1. Petrus 3:18
 

@@ -164,19 +164,19 @@ Tiktok:
 
 [<u>https://www.tiktok.com/@live.above.3d</u>](https://www.tiktok.com/@live.above.3d)
 
-u~~ ~u Twitter: @live\_above\_3d
+ Twitter: @live\_above\_3d
 
 [<u>https://twitter.com/live\_above\_3d</u>](https://twitter.com/live_above_3d)
 
 Reddit: live-above-3d <https://www.reddit.com/user/live-above-3d>
 
-Instagram: <https:/ /www.instagram.com/live.above.3d/>
+Instagram: <https:/ /www.instagram.com/live.above.3d>
 
 Facebook:
 
-[<u>https://www.facebook.com/profile.php?id=100092339087423</u>](https://www.facebook.com/profile.php?id=100092339087423)
+[<u>https://www.facebook.com/profile/100092339087423</u>](https://www.facebook.com/profile/100092339087423)
 
-u ~~~u **<u>BIBELVERSE</u>**
+ **<u>BIBELVERSE</u>**
 
 **<sup>8</sup>**Wieder die Der Teufel führt ihn auf einen überaus hohen Berg und zeigt ihm alle Königreiche der Welt und ihre Herrlichkeit.
 
@@ -188,7 +188,7 @@ u ~~~u **<u>BIBELVERSE</u>**
 
 Matthäus 4:8-11
 
-**<sup>20</sup>**Nun sind wir Botschafter für Christus, als ob Gott u~~ wäre Du hast dich von uns gebeten. Wir bitten dich an Christi Stelle, versöhne dich mit Gott.
+**<sup>20</sup>**Nun sind wir Botschafter für Christus, als ob Gott  wäre Du hast dich von uns gebeten. Wir bitten dich an Christi Stelle, versöhne dich mit Gott.
 
 2. Korinther 5:20
 

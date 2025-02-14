@@ -4,7 +4,7 @@
 
 **Wie Behandelt der Himmel unsere Gebete?**
 
-Einer der Elohim ging auf dem Wasser, ein Schüler fragte ihn: „Wenn du es bist, bitte mich, zu kommen.“ Die Elohim antworteten „Komm“. Später begegneten einige Dämonen an Land den Elohim, und als sie erkannten, wer Er war, baten sie ihn, kein genaues Urteil zu fällen, sondern sie lieber in die Schlacht zu schicken. Wieder antworteten die Elohim mit „Geh“. Bald darauf forderten die Einwohner die Elohim auf, ihre Stadt zu verlassen (denn er war in Menschengestalt). Der, Elohim, ging. Als der U-~~u Elohim (der der helle Morgenstern genannt wird) die Stadt verließ, bat ein U-~~u-Mann, den Er von der Dämonenbesessenheit befreit hatte, ihm zu folgen. Die
+Einer der Elohim ging auf dem Wasser, ein Schüler fragte ihn: „Wenn du es bist, bitte mich, zu kommen.“ Die Elohim antworteten „Komm“. Später begegneten einige Dämonen an Land den Elohim, und als sie erkannten, wer Er war, baten sie ihn, kein genaues Urteil zu fällen, sondern sie lieber in die Schlacht zu schicken. Wieder antworteten die Elohim mit „Geh“. Bald darauf forderten die Einwohner die Elohim auf, ihre Stadt zu verlassen (denn er war in Menschengestalt). Der, Elohim, ging. Als der  Elohim (der der helle Morgenstern genannt wird) die Stadt verließ, bat ein -Mann, den Er von der Dämonenbesessenheit befreit hatte, ihm zu folgen. Die
 
 Elohim lehnten diese letzte Bitte ab.
 
@@ -56,7 +56,7 @@ Himmel und Erde werden vergehen, aber meine Worte werden nicht vergehen. Markus
 
 13:31
 
-In Hebräer 6, Vers 17 steht geschrieben: „Darin will Gott mehr, um den Erben der Verheißung die Unveränderlichkeit seines Lebens zu zeigen.“ ~~~u Rat...
+In Hebräer 6, Vers 17 steht geschrieben: „Darin will Gott mehr, um den Erben der Verheißung die Unveränderlichkeit seines Lebens zu zeigen.“  Rat...
 
 Ich habe eine Reihe von Zeit- und auch Kopfpredigten gelesen, die die Tatsache nutzen, dass Gott tut, was Er will, um einige zu rechtfertigen „Zufälligkeit“ in Gottes Handeln.
 
@@ -88,7 +88,7 @@ hat Antworten:
 
 Die Geschichte ist in Lukas 8:26-39, Matthäus 8:28-34, Markus 5:1-20
 
-u~~ ~u Beachten Sie, dass Jesus dem Neubekehrten nicht erlaubte, Ihm zu folgen, wie Sie es verlangt hatten, weil Jesus, der Neubekehrte, in diesem Gebiet bleiben und predigen sollte.
+ Beachten Sie, dass Jesus dem Neubekehrten nicht erlaubte, Ihm zu folgen, wie Sie es verlangt hatten, weil Jesus, der Neubekehrte, in diesem Gebiet bleiben und predigen sollte.
 
 Es wird die Zeit kommen, in der Gott Gebete nicht erhört, aber es wird für immer so sein. Dieses Gute wird Ihnen nicht verborgen bleiben. Du wirst es wissen.
 
@@ -98,13 +98,13 @@ Danke.
 
 **<u>TEIL 2</u>**
 
-**Willkommen im Leben über 3 D. Dies ist eine Serie mit dem Titel: Antwortet Gott dir? ~~~u Gebete?**
+**Willkommen im Leben über 3 D. Dies ist eine Serie mit dem Titel: Antwortet Gott dir?  Gebete?**
 
 In Teil 1 haben wir gezeigt, dass die Art und Weise, wie Gott Gebete beantwortet, mit diesem Willen übereinstimmt. Heute schauen wir uns Gottes Willen an, um zu verstehen, wie und wann er Gebete beantwortet.
 
 In 1. Johannes 5, Verse 14 und 15 steht geschrieben:
 
-Und das ist das Vertrauen, das wir in ihn haben, wenn wir irgendjemanden fragen u~~ Wenn wir tun, was seinem Willen entspricht, erhört er uns. Und wenn wir wissen, dass er uns erhört, was auch immer wir bitten, wissen wir, dass wir die Bitten haben, die wir von ihm erbeten haben.
+Und das ist das Vertrauen, das wir in ihn haben, wenn wir irgendjemanden fragen  Wenn wir tun, was seinem Willen entspricht, erhört er uns. Und wenn wir wissen, dass er uns erhört, was auch immer wir bitten, wissen wir, dass wir die Bitten haben, die wir von ihm erbeten haben.
 
 1. **Gott hört nicht jedes Gebet.**
 
@@ -116,7 +116,7 @@ Beachten Sie, dass es das Bitten ist, das seinem Willen entsprechen muss.
 
 - Wenn er uns hört, haben wir
 
-u~~ ~u - Nicht wenn er uns hört, werden wir dich haben~~~u
+ - Nicht wenn er uns hört, werden wir dich haben
 
 - Oder wenn er uns hört, wird er über unsere Gebete nach Antworten nachdenken.
 
@@ -216,7 +216,7 @@ Erinnerst du dich, als die Jünger Jesu keinen Dämon austreiben konnten? Matth�
 
 1. **Gebet und Fasten stärken den Glauben.**
 
-Gebet und Fasten stärken Ihren Glauben. Es verlagert Ihren Fokus von der U~~~u-Welt auf das Wort Gottes. Dies ist notwendig, da Glaube eine spirituelle Aktivität ist, bei der man (allen Widrigkeiten und Vernunft zum Trotz) auf das Wort Gottes reagiert.
+Gebet und Fasten stärken Ihren Glauben. Es verlagert Ihren Fokus von der -Welt auf das Wort Gottes. Dies ist notwendig, da Glaube eine spirituelle Aktivität ist, bei der man (allen Widrigkeiten und Vernunft zum Trotz) auf das Wort Gottes reagiert.
 
 Zum Beispiel für die epileptischen Krämpfe mitten auf der Straße,
 
@@ -230,13 +230,13 @@ Geduld ist der Teil, den viele Christen falsch verstehen. In Teil 3 dieser Serie
 
 **<u>TEIL 3</u>**
 
-\*Selbst während ich mit dir spreche, gibt es Bereiche deines Lebens, die von dir geschützt werden ~~Du fürchtest.
+\*Selbst während ich mit dir spreche, gibt es Bereiche deines Lebens, die von dir geschützt werden. Du fürchtest.
 
 \*Kann eine Person, die nichts von den Geschehnissen im Geisterreich weiß, Ihren Glauben aufrechterhalten?
 
 \*Jeder Erfolg ohne Gott wird dir in der Zukunft Probleme bereiten. Diese Probleme scheinen auf den ersten Blick nicht immer offensichtlich zu sein. Ungeachtet der Komplexität Ihrer zukünftigen Probleme kann Gott die Dinge immer zu Ihrem Besten wenden.
 
-In diesem Teil geht es um Geduld. Ich nenne es beharrlichen Glauben. Es ist nötig, denn der Glaube wird auf die Probe gestellt. In den Rechtssystemen der Erde werden Beweise häufig von der Gegenseite geprüft. Das ist die Praxis im Himmel. Für euch Christen ist der Glaube ein Beweis und Satan ist unser Ankläger. Also stellt Satan mit der Zeit unseren Glauben auf die Probe. Um zu verstehen, wie Satan dies tut, finden Sie hier ein U~~~u-Gleichnis.
+In diesem Teil geht es um Geduld. Ich nenne es beharrlichen Glauben. Es ist nötig, denn der Glaube wird auf die Probe gestellt. In den Rechtssystemen der Erde werden Beweise häufig von der Gegenseite geprüft. Das ist die Praxis im Himmel. Für euch Christen ist der Glaube ein Beweis und Satan ist unser Ankläger. Also stellt Satan mit der Zeit unseren Glauben auf die Probe. Um zu verstehen, wie Satan dies tut, finden Sie hier ein -Gleichnis.
 
 Eine bestimmte Frau betete zu Gott um einen roten Lamborghini (Sie haben mich richtig gehört, Sie haben einen roten Lamborghini). Sie stellte sich einen Wohltäter vor, der den roten Lamborghini vor ihrem Haus parkte und die Schlüssel und Dokumente zur Eigentumsübertragung unter ihre Fußmatte fallen ließ. Ihr Beweis für die Annahme des Lamborghini war ihr Glaube an Christus, der auch gnädigerweise ihr Fürsprecher war.
 
@@ -314,7 +314,7 @@ Gebet für eine andere Person
 
 Junge Dame betet für einen bestimmten Ehemann
 
-u ~~~u Junge Dame, bete für ein guter Ehemann
+ Junge Dame, bete für ein guter Ehemann
 
 Junge Dame, bete darum, eine gute Ehefrau zu sein
 
@@ -362,7 +362,7 @@ Einige Arten von Gebeten
 
 Gott gebe mir John Uke als Ehemann
 
-u~~ ~u Gott gib mir einen guten Ehemann
+ Gott gib mir einen guten Ehemann
 
 Gott mache mich reich
 

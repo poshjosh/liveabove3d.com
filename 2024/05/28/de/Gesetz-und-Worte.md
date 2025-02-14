@@ -38,7 +38,7 @@ Also sprich das Wort Gottes: „Denn die Gerechtigkeit des Glaubens redet“ –
 
 BIBELVERSE
 
-u ~~~u Denn der HERR ist unser Richter, der HERR ist unser Gesetzgeber, der HERR ist unser König; er wird uns retten.
+ Denn der HERR ist unser Richter, der HERR ist unser Gesetzgeber, der HERR ist unser König; er wird uns retten.
 
 Jesaja 33:22
 
@@ -104,9 +104,9 @@ Twitter: www.twitter.com/live_above_3d
 
 Reddit: www.reddit.com/user/live-above-3d
 
- Instagram: www.instagram.com/live.above.3d/
+ Instagram: www.instagram.com/live.above.3d
 
-Facebook: www.facebook.com/profile.php?id=100092339087423
+Facebook: www.facebook.com/profile/100092339087423
 
 #viral #foryou #LiveAbove3D #god #jesus #ChristianApologetics #LoveOfGod #FaithAndReason #TruthInChristianity #ScienceAndFaith #ChristianityExplained #BelieveInJesus #ReasonsForFaith #BeweiseFürGott #Christentum verstehen #GlaubeVsWissenschaft #Wahrheit suchen #LogikUndGlaube #Christentum101 #Atheismus in Frage stellen #Mythen entlarven #GottUndWissenschaft #Glauben entdecken #christlichleben #gesegnet #Hoffnung #Inspiration #BeyondThePhysical
 

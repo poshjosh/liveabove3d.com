@@ -12,7 +12,7 @@ Wenn es einen gäbe, könnte jemand es wissen? Nun, ich sage es dir; Das sind di
 
 Gründe, warum ich Christ bin:
 
-**Warum ich Christ bin. Grund Nummer eins. Nur Gott kann eine U~~~u-Religion errichten.** In diesem Fall spreche ich insbesondere von den abrahamitischen U~~~u-Religionen. Religion erfasst die Beziehung zwischen Gott und Mensch. Die Bedingungen dieser Beziehung haben sich im Laufe der Zeit geändert. Wir werden jede U~~~u-Phase eine Epoche nennen. In der ersten Epoche war die Menschheit ein herrschender Verwalter. Daher gab Gott selbst Adam den Auftrag: „Sei fruchtbar und vermehre dich, und bevölkere die Erde und unterwerfe sie dir und herrsche über die Fische des Meeres und darüber hinaus.“ über die Vögel des Himmels und über alles Lebendige, das sich auf der Erde bewegt.“ Gott hätte einen Cherub oder einen Erzengel schicken können. Er hätte einen der Söhne Gottes schicken können. Allerdings hat Gott Adam selbst den Auftrag gegeben.
+**Warum ich Christ bin. Grund Nummer eins. Nur Gott kann eine -Religion errichten.** In diesem Fall spreche ich insbesondere von den abrahamitischen -Religionen. Religion erfasst die Beziehung zwischen Gott und Mensch. Die Bedingungen dieser Beziehung haben sich im Laufe der Zeit geändert. Wir werden jede -Phase eine Epoche nennen. In der ersten Epoche war die Menschheit ein herrschender Verwalter. Daher gab Gott selbst Adam den Auftrag: „Sei fruchtbar und vermehre dich, und bevölkere die Erde und unterwerfe sie dir und herrsche über die Fische des Meeres und darüber hinaus.“ über die Vögel des Himmels und über alles Lebendige, das sich auf der Erde bewegt.“ Gott hätte einen Cherub oder einen Erzengel schicken können. Er hätte einen der Söhne Gottes schicken können. Allerdings hat Gott Adam selbst den Auftrag gegeben.
 
 Die nächste Epoche begann, nachdem Adam und Eva gesündigt hatten. Wieder einmal hat Gott selbst Ihnen die Bedingungen der neuen Epoche vorgelesen. Siehe Genesis Kapitel 3, Verse 14 bis 24.
 
@@ -74,7 +74,7 @@ Warum musste Jesus sterben? Die Antwort auf diese Frage ist der vierte und letzt
 
 **Die Botschaft und der Bote.**
 
-Die Bibel sagt uns, dass Gott die Welt so sehr liebte, dass er dafür einen hohen Preis zahlte U~~~u Preis, um uns zu retten. Egal, was Sie schon einmal gehört haben oder was Sie jetzt denken, denken Sie zunächst daran, dass dies eine Liebesgeschichte ist. Was mich verblüfft, ist Folgendes: Viele haben gehört, dass ihr Schöpfer einen hohen Preis für sie bezahlt hat;
+Die Bibel sagt uns, dass Gott die Welt so sehr liebte, dass er dafür einen hohen Preis zahlte  Preis, um uns zu retten. Egal, was Sie schon einmal gehört haben oder was Sie jetzt denken, denken Sie zunächst daran, dass dies eine Liebesgeschichte ist. Was mich verblüfft, ist Folgendes: Viele haben gehört, dass ihr Schöpfer einen hohen Preis für sie bezahlt hat;
 
 , doch sie haben sich kaum oder gar keine Mühe gegeben, herauszufinden, was oder warum. Welcher Preis, warum und wie Gott den Preis bezahlt hat, sowie das Ergebnis, ist die Botschaft des Christentums.
 

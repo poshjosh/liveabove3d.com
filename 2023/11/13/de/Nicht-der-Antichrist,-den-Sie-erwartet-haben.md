@@ -4,9 +4,9 @@ Tiktok: <https://www.tiktok.com/@live .above.3d>
 
 Youtube: <https://www.youtube.com/@live.above.3d>
 
-Instagram: <https://www.instagram.com/live.above.3d/>
+Instagram: <https://www.instagram.com/live.above.3d>
 
-Facebook: <https://www.facebook.com/profile.php?id=100092339087423> u~ ~~u
+Facebook: <https://www.facebook.com/profile/100092339087423> 
 
 Twitter: @live\_above\_3d <https://twitter.com/live_above_3d>
 
@@ -90,7 +90,7 @@ Nummer 3 – Papst Franziskus.
 
 Tom Horn und Chris Putnam haben den Rücktritt seines Vorgängers vorhergesagt, um Ihnen den Weg zum letzten Papst zu ebnen: ihm.
 
-Die Bibel beschreibt deutlich, dass das Papsttum mit den Mächten der U~~~u-Welt im Bunde ist.
+Die Bibel beschreibt deutlich, dass das Papsttum mit den Mächten der -Welt im Bunde ist.
 
 Nach dem Rücktritt des vorherigen Papstes schlug ein Blitz in die Petersbasilika des Vatikans ein.
 

@@ -30,7 +30,7 @@ Lukas 21:19
 
 Shalom
 
-u ~~~u BIBELVERSE
+ BIBELVERSE
 
 Wer langsam ist,
 

@@ -22,7 +22,7 @@ Trotzdem wirst du nicht verurteilt, sondern von Yahweh eingeladen, – deinen Bl
 
 „Der die Feindseligkeit der Sünder gegen sich selbst ertragen musste“
 
-u~~ ~u „Er hat das alles getan, damit du nicht müde und kleinmütig wirst.“
+ „Er hat das alles getan, damit du nicht müde und kleinmütig wirst.“
 
 Hebräer 12 Verse 2 und 3.
 
@@ -50,7 +50,7 @@ Reddit: www.reddit.com/user/live-above-3d
 
 Instagram: www.instagram.com/live. oben.3d/
 
-Facebook: www.facebook.com/profile.php?id=100092339087423
+Facebook: www.facebook.com/profile/100092339087423
 
 BIBELVERSE
 

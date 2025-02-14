@@ -12,7 +12,7 @@ Ungefähr viertausend Jahre später wurde eine weitere Linie gegründet; dessen 
 
 In 1. Korinther 15:45 nennt die Bibel Jesus Christus den letzten Adam.
 
-Ungeachtet der Wortwahl der Bibel wird in kommenden Zeiten eine neue U~~~u-Linie etabliert.
+Ungeachtet der Wortwahl der Bibel wird in kommenden Zeiten eine neue -Linie etabliert.
 
 Die neue Linie wird versuchen, unsere derzeitigen Unvollkommenheiten zu verbessern.
 
@@ -82,7 +82,7 @@ Da ist noch mehr.
 
 Wissenschaftler sind sich im Allgemeinen einig, dass ein vierdimensionales Wesen in der Lage wäre, zu erscheinen und zu verschwinden sowie durch Wände zu gehen.
 
-Religiöse Menschen glauben, dass dies die Eigenschaften von Geistern sind, so dass wir mit Sicherheit schlussfolgern können, dass das Geisterreich die vierte U~~~u-Dimension ist.
+Religiöse Menschen glauben, dass dies die Eigenschaften von Geistern sind, so dass wir mit Sicherheit schlussfolgern können, dass das Geisterreich die vierte -Dimension ist.
 
 Tatsächlich gibt es ein Buch (das Sie lesen sollten) von Doktor David Yonggi
 
@@ -264,7 +264,7 @@ Wir haben auch gezeigt, dass ein solches Bild der erste Schritt ist, die Erde mi
 
 Was hat das alles mit der guten Nachricht von Jesus Christus zu tun?
 
-Nun, die gute Nachricht ist, dass der Gott Abrahams, Isaaks und Jakobs die Welt so sehr geliebt hat, dass er eine neue Linie gründete, um die Erde mit einem besseren U~~~ zu füllen Du bist irgendwie ein Mensch.
+Nun, die gute Nachricht ist, dass der Gott Abrahams, Isaaks und Jakobs die Welt so sehr geliebt hat, dass er eine neue Linie gründete, um die Erde mit einem besseren  zu füllen Du bist irgendwie ein Mensch.
 
 Außerdem mussten die Menschen nichts tun, da Jahwe alles selbst tat.
 
@@ -338,11 +338,11 @@ Tiktok: <https://www.tiktok.com/@live.above.3d>
 
 Youtube: <https: //www.youtube.com/@live.above.3d>
 
-Instagram: <https://www.instagram.com/live.above.3d/>
+Instagram: <https://www.instagram.com/live.above.3d>
 
-Facebook: <https://www.facebook.com/profile.php?id=100092339087423>
+Facebook: <https://www.facebook.com/profile/100092339087423>
 
-Twitter: @live\_above\_3d <https://twitter.com/live_above_3d> u~~ ~u
+Twitter: @live\_above\_3d <https://twitter.com/live_above_3d> 
 
 Reddit: live-above-3d <https://www.reddit.com/user/live-above-3d>
 
@@ -364,7 +364,7 @@ Clip
 
 **<u>Bibelverse</ u>**
 
-**<sup>26 </sup>**Und Gott sprach: Lasst uns den Menschen nach unserem Bild machen, nach unserem U~~~u-Ebenbild, und lasst sie über die Fische des Meeres herrschen, und über euch die Vögel des Himmels und über das Vieh und über die ganze Erde und ihr über alles Gewürm, das auf der Erde kriecht.
+**<sup>26 </sup>**Und Gott sprach: Lasst uns den Menschen nach unserem Bild machen, nach unserem -Ebenbild, und lasst sie über die Fische des Meeres herrschen, und über euch die Vögel des Himmels und über das Vieh und über die ganze Erde und ihr über alles Gewürm, das auf der Erde kriecht.
 
 **<sup>27 </sup>Also schuf Gott den Menschen nach seinem eigenen Bild**, nach dem Bild von
 
@@ -382,7 +382,7 @@ Macht, als er selbst unsere Sünden reinigte, setzte sich zur rechten
 
 Hand der Majestät in der Höhe:
 
-Hebräer 1:1-3 u ~~~u
+Hebräer 1:1-3 
 
 **<sup>13 </sup>**Der uns von der Macht der Dunkelheit befreit hat und uns in das Königreich seines lieben Sohnes versetzt hat:
 
@@ -392,13 +392,13 @@ Vergebung der Sünden:
 
 **<sup>15 </sup>Wer ist das Bild des unsichtbaren Gottes**, der Erstgeborene aller Geschöpfe:
 
-Kolosser 1:13-15 u~~ ~u
+Kolosser 1:13-15 
 
 **Und verführt die Bewohner der Erde durch die Wunder, die er vor den Augen des Tieres tun konnte; und sprach zu euch, die auf der Erde wohnen, dass sie dem Tier, das eine Schwertwunde hatte und am Leben blieb, ein Bild machen sollten.
 
 Offenbarung 13:14
 
-Und der <span class="smallcaps">Herr</span> **Gott** bildete den Menschen der u~~~ Du Staub vom Erdboden, und er hauchte in seine Nase den Odem des Lebens; Du und der Mensch wurden zu einer lebendigen Seele**.
+Und der <span class="smallcaps">Herr</span> **Gott** bildete den Menschen der  Du Staub vom Erdboden, und er hauchte in seine Nase den Odem des Lebens; Du und der Mensch wurden zu einer lebendigen Seele**.
 
 Genesis 2:7
 
@@ -418,7 +418,7 @@ Offenbarung 13:15
 
 Johannes 5:19
 
-**<sup>23 </sup>**Aber als sie segelten, schlief er ein; und **da kamen u~~ Du schlägst einen Windsturm auf dem See nieder; Und sie wurden mit Wasser gefüllt, und du warst in Gefahr.**
+**<sup>23 </sup>**Aber als sie segelten, schlief er ein; und **da kamen  Du schlägst einen Windsturm auf dem See nieder; Und sie wurden mit Wasser gefüllt, und du warst in Gefahr.**
 
 **<sup>24 </sup>Und sie kamen zu ihm und weckten ihn und sprachen: Meister, du Meister, wir gehen zugrunde**. Dann stand er auf und tadelte den Wind und das tosende Wasser; und sie hörten auf, und es herrschte Stille.
 
@@ -430,7 +430,7 @@ Johannes 11:25
 
 **<sup>17 </sup>**Und da war geliefert ihm das Buch des Propheten Esaias. Und als er das Buch aufgeschlagen hatte, fand er die Stelle, wo es geschrieben stand:
 
-**<sup>18 </sup>Der Geist des Herrn ruht auf mir, denn er hat mich gesalbt, den Armen das Evangelium zu predigen; Er hat mich gesandt, um euch zu heilen, die gebrochenen Herzens sind, um den Gefangenen Befreiung zu predigen und um die Blinden wieder sehend zu machen, um die Zerschlagenen freizulassen ~~~u **<sup>19 </sup>**Um das angenehme Jahr des Herrn zu predigen.
+**<sup>18 </sup>Der Geist des Herrn ruht auf mir, denn er hat mich gesalbt, den Armen das Evangelium zu predigen; Er hat mich gesandt, um euch zu heilen, die gebrochenen Herzens sind, um den Gefangenen Befreiung zu predigen und um die Blinden wieder sehend zu machen, um die Zerschlagenen freizulassen  **<sup>19 </sup>**Um das angenehme Jahr des Herrn zu predigen.
 
 **<sup>20 </sup>**Und er schloss das Buch, gab es dem
 
@@ -458,11 +458,11 @@ Matthäus 2:1-2
 
 Pilatus antwortete: Bin ich ein Jude? Dein eigenes Volk und die Hohenpriester haben dich mir ausgeliefert. Was hast du getan?
 
-**Jesus antwortete: „Mein Königreich ist nicht von dieser Welt. Wenn mein Königreich von dieser Welt wäre, dann würden meine Diener kämpfen, damit ich nicht von dieser Welt befreit würde.“ ~u zu den Juden**: aber jetzt ist mein Königreich nicht von hier.
+**Jesus antwortete: „Mein Königreich ist nicht von dieser Welt. Wenn mein Königreich von dieser Welt wäre, dann würden meine Diener kämpfen, damit ich nicht von dieser Welt befreit würde.“  zu den Juden**: aber jetzt ist mein Königreich nicht von hier.
 
 Johannes 18:-33-36
 
-**Wo des Königs Wort ist, da ist Macht**: Und wer mag es dir sagen~~~ Du ihn, Was tust du?
+**Wo des Königs Wort ist, da ist Macht**: Und wer mag es dir sagen Du ihn, Was tust du?
 
 Prediger 8:4
 
@@ -480,7 +480,7 @@ Markus 16:15-16
 
 **<sup>16 </sup> **Und er lässt alle, klein und groß, reich und arm, frei und gebunden, ein Malzeichen in ihre rechte Hand oder auf ihre Stirn empfangen:
 
-~ ~~u **<sup>17 </sup>**Und dass niemand kaufen oder verkaufen könne, außer dem, der das Malzeichen oder den Namen des Tieres oder die Zahl seines Namens hatte.
+ **<sup>17 </sup>**Und dass niemand kaufen oder verkaufen könne, außer dem, der das Malzeichen oder den Namen des Tieres oder die Zahl seines Namens hatte.
 
 Offenbarung 13:16-17
 

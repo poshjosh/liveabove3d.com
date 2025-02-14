@@ -4,9 +4,9 @@ Tiktok: <https://www.tiktok.com/@ live.above.3d>
 
 Youtube: <https://www.youtube.com/@live.above.3d>
 
-Instagram: <https://www.instagram.com/live.above.3d/>
+Instagram: <https://www.instagram.com/live.above.3d>
 
-Facebook: <https://www.facebook.com/profile.php?id=100092339087423> u~ ~~u
+Facebook: <https://www.facebook.com/profile/100092339087423> 
 
 Twitter: @live\_above\_3d <https://twitter.com/live_above_3d>
 
@@ -48,13 +48,13 @@ Das ist eine andere Art zu sagen, dass der menschliche Geist außerirdisch ist.
 
 In Teil 2 des Videos: „Wenn Gott existiert, wo sind sie?“; Wir haben gezeigt, wie die Menschheit ihre außerirdischen Fähigkeiten verloren hat.
 
-Jetzt scheinen Forschungen der University of Greenwich und des Imperial College in London zu DMTs unsere außerirdischen Fähigkeiten zu erschließen. U~~~u
+Jetzt scheinen Forschungen der University of Greenwich und des Imperial College in London zu DMTs unsere außerirdischen Fähigkeiten zu erschließen. 
 
 DMTs sind ein Psychedelikum (eine Art Droge), das in der Lage ist, radikale Veränderungen in der bewussten Erfahrung hervorzurufen.
 
 Forschung hat gezeigt, dass viele DMT-Anwender andere weltliche Wesen erleben.
 
-Laut einem: „DMT schleudert den Benutzer in eine bizarre hyperdimensionale U~~~u-Welt voller äußerst intelligenter Wesen.“
+Laut einem: „DMT schleudert den Benutzer in eine bizarre hyperdimensionale -Welt voller äußerst intelligenter Wesen.“
 
 Wir stehen vielleicht in Kontakt mit anderen weltlichen Wesen; Dennoch gibt es einen Haken.
 

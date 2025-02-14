@@ -34,9 +34,9 @@ Tiktok: https://www.tiktok.com/@live.above.3d  Twitter: @live_above_3d https://t
 
 Reddit: live-above-3d https://www.reddit.com/user/live-above-3d
 
-Instagram: https://www.instagram.com/live.above.3d/
+Instagram: https://www.instagram.com/live.above.3d
 
-Facebook: https:/ /www.facebook.com/profile.php?id=100092339087423
+Facebook: https:/ /www.facebook.com/profile/100092339087423
 
 BIBELVERSE
 

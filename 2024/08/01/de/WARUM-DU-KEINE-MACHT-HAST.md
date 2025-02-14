@@ -54,15 +54,15 @@ Twitter: www.twitter.com/live_above_3d
 
 Reddit: www.reddit.com/user/live-above-3d
 
- Instagram: www.instagram.com/live.above.3d/
+ Instagram: www.instagram.com/live.above.3d
 
-Facebook: www.facebook.com/profile.php?id=100092339087423
+Facebook: www.facebook.com/profile/100092339087423
 
 BIBELVERSE
 
 Epheser 1:17-21
 
-u~~ ~u 1. Johannes 5:4
+ 1. Johannes 5:4
 
 Galater 5:6
 

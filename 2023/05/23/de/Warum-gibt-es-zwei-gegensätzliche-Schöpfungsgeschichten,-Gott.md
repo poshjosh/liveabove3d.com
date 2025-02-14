@@ -1,6 +1,6 @@
 Hallo und willkommen bei: Live Above 3D
 
-Heute werde ich Sie über die beiden gegensätzlichen Schöpfungsgeschichten in den u~~ informieren ~u Bibel.
+Heute werde ich Sie über die beiden gegensätzlichen Schöpfungsgeschichten in den  informieren  Bibel.
 
 In Genesis Kapitel 1 wurden Pflanzen und Tiere vor dem Menschen erschaffen.
 
@@ -38,7 +38,7 @@ Pflanzen wuchsen.
 
 Dies sind die Generationen der Himmel und der Erde, als sie erschaffen wurden, an dem Tag, an dem der <span class="smallcaps">Herr</span> Gott
 
-erschaffen wurde ~~~Du hast die Erde und die Himmel gemacht, und **jede Pflanze des Feldes, bevor sie auf Erden war, und jedes Kraut des Feldes, bevor es wuchs: für dich die <Spanne class="smallcaps">Herr</span> Gott hatte es nicht auf die Erde regnen lassen**, und es gab keinen Menschen, der den Boden bestellt hätte.
+erschaffen wurde Du hast die Erde und die Himmel gemacht, und **jede Pflanze des Feldes, bevor sie auf Erden war, und jedes Kraut des Feldes, bevor es wuchs: für dich die <Spanne class="smallcaps">Herr</span> Gott hatte es nicht auf die Erde regnen lassen**, und es gab keinen Menschen, der den Boden bestellt hätte.
 
 Genesis 2:4,5
 

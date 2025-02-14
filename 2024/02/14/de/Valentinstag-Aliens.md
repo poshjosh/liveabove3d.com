@@ -78,7 +78,7 @@ Aus diesem Grund haben sich unsere Anführer für die Alien-Rasse 4 entschieden 
 
 Der Agent, der mir diese Geschichte erzählt hat, fasste seine Entscheidung folgendermaßen zusammen:
 
-Wenn Sie einen Vorgesetzten auswählen, wählen Sie jemanden, der liebt (oder Opfer bringt), einem anderen vor ~Du, der qualifiziert ist.
+Wählen Sie bei der Auswahl eines Vorgesetzten eher jemanden, der liebt (oder Opfer bringt), als einen anderen, der qualifiziert ist.
 
 Wenn Sie einen Untergebenen auswählen, wählen Sie einen, der sich unterwirft (oder loyal ist) gegenüber jemandem, der qualifiziert ist.
 
@@ -122,8 +122,8 @@ Twitter: @live\_above\_3d
 
 Reddit: live-above-3d < https://www.reddit.com/user/live-above-3d>
 
-Instagram: <https://www.instagram.com/live.above.3d/>
+Instagram: <https://www.instagram.com/live.above.3d>
 
 Facebook:
 
-[<u>https://www.facebook.com/profile.php?id=100092339087423</u>](https://www.facebook .com/profile.php?id=100092339087423)
+[<u>https://www.facebook.com/profile/100092339087423</u>](https://www.facebook .com/profile/100092339087423)

@@ -40,10 +40,13 @@ und Jesus kamen und sprachen zu ihnen und sagten: „Alle Autorität wurde mir i
 
 Aber derjenige, der es nicht kannte und Taten begangen hat, die eine Schläge würdig waren, wird nur einige erhalten. Von allen, denen viel gegeben wurde, wird viel erforderlich sein, und für wen sie viel anvertraut haben, werden sie umso mehr fragen. - Lukas 12:48
 
-Empfohlen zu lesen /07/12/en/What-is-a-son-of-god/
+Empfohlen zu lesen 
 
+• https://liveabove3d.com/2024/07/12/en/What-is-a-son-of-god/
 
-• https://liveabove3d.com/2024/07/12/de/was-ist-ein-sohn-gottes/ ~ ~~ Weitere
+• https://liveabove3d.com/2024/07/12/de/was-ist-ein-sohn-gottes/
+
+Weitere
 
 • Website: www.liveabove3d.com
 
@@ -53,12 +56,11 @@ Empfohlen zu lesen /07/12/en/What-is-a-son-of-god/
 
 • x: www.x.com/live_above_3d
 
-
 • Reddit: www.reddit.com/user/live-above-3d
 
-• Instagram: www.instagram.com/live.above.3d /
+• Instagram: www.instagram.com/live.above.3d
 
-• Facebook: www.facebook.com/profile.php?id=100092339087423
+• Facebook: www.facebook.com/profile/100092339087423
 
 
 

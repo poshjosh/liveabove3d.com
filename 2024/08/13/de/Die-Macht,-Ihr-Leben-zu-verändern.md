@@ -44,6 +44,6 @@ BIBELVERSE
 
 Epheser 1:17-21
 
-Genesis 20:1-19, 21:1-2 u ~~~u Hiob 42:102
+Genesis 20:1-19, 21:1-2  Hiob 42:102
 
 Hiob 42:10
