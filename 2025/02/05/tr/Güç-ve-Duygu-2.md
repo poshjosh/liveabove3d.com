@@ -64,7 +64,7 @@ Referanslar
 
 Bölüm 1
 
-• Blog: https://liveabove3d.com/2024/04/06/en/power-and-emotion/ ~ ~ ~~
+• Blog: https://liveabove3d.com/2024/04/06/en/power-and-emotion/   
 
 • Tiktok: https://www.tiktok.com/Live.above.3d/video/7355401969172843809
 
@@ -82,7 +82,7 @@ ve acı içinde olmak çok hararetle dua ediyordu ve teri yere düşerek kan dam
 
 Önerilen
 
-https://liveabove3d.com/2024/08/13/en/power-tour-foir-mour- alound/ ~ ~~
+https://liveabove3d.com/2024/08/13/en/power-tour-foir-mour- alound/  
 
 https://www.tiktok.com/@live.above.3d/video/7402843603292961
 

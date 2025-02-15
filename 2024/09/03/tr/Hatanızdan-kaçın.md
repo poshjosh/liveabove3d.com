@@ -44,7 +44,7 @@ dedi.
 @Live.above.3d @Live_above_3d @live-above-3d @samshamoun @dailydoseofwisdom @Empathetic_Mindfulness @SpaceRewind @technoplusmedia @Cosmoknowledge @themessagechannel1 @CuriositySp @veritasium @kapchatfield.07 @ken.arrington @tedtoks @the.anonymous.prophet @offthekirb @StarTalk
 
 
-LEARN MORE ~ ~~ Web sitesi: www.liveabove3d.com
+LEARN MORE   Web sitesi: www.liveabove3d.com
 
 YouTube: www.youtube.com/@live.above.3d
 

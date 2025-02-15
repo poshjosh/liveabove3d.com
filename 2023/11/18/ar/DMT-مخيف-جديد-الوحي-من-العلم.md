@@ -6,7 +6,7 @@ youtube: <https://www.youtube.com/@live.above.3d>
 
 instagram: <https://www.instagram.com/live.above.3d>
 
-~~ facebook : <https://www.facebook.com/profile/10009239087423>
+ facebook : <https://www.facebook.com/profile/10009239087423>
 
 Twitter: live \ _above \ _3d <https://twitter.com/live_above_3d> الوحي الجديد من العلم ، وليس ما تعتقده.
 

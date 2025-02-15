@@ -38,7 +38,7 @@ Yorumlar bölümünde bana bildirin.
 
 #Trump #putin #antichrist #ww3 #nuclearwar #usa
 
-#viral #Foryou #LivaABOLOGETETICS #god #godus #christianapologetics Believeinjesus #Reasonsforfaith #Faithvsscience #Seekingtruth #Logicandbelief #Christianity101 #questioningathism ~discoveringfaith ~bristy ~ ~bristylive ~ #hopithephep ~ ~bristy ~ ~ ~bristyliving ~ ~ ~
+#viral #Foryou #LivaABOLOGETETICS #god #godus #christianapologetics Believeinjesus #Reasonsforfaith #Faithvsscience #Seekingtruth #Logicandbelief #Christianity101 #questioningathism discoveringfaith bristy  bristylive  #hopithephep  bristy   bristyliving   
 
 Sonra baktım ve beyaz bir ata baktım ve üzerinde oturan bir yay vardı; ve ona bir taç verildi ve üstesinden gelip üstesinden gelmek için dışarı çıktı.
 

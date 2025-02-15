@@ -12,7 +12,7 @@ pour vous faire haine
 
 Priez plutôt et demandez
 
-Dieu; ~ Le Seigneur se bat pour vous.
+Dieu;  Le Seigneur se bat pour vous.
 
 Exode 14:14
 

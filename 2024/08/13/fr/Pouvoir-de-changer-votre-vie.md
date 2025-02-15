@@ -37,7 +37,7 @@ Shalom.
 
 #PowerOfLove #InterCession #faith #Believe #Christian #Love #Jesus #Christ
 
-#Viral #Foryou # liveAbove3d #god #yhwh #yahweh #ChristianapoGetic #ReasonsForfaith #Evidenceforgod #Understandingchristianity #faithvsscience #seekingtruth #logicandbellief # christianity101 #questioningAtheism #Debunkingmyths #godandise 3d @startalk @ samshamoun @dailydoseofwisdom @empathetic_mindfury @spacerewind @technoplusmedia @cosmoknowledge @ theMessageChannel1 @curiositysp @veritasium @ kapchatfield.07 @ ken.arrington @tedtoks @ the.anonymous @offthekirbb ~~ Bable Verse ~ Bable ~~ Genèse 20: 1-19, 21: 1-2
+#Viral #Foryou # liveAbove3d #god #yhwh #yahweh #ChristianapoGetic #ReasonsForfaith #Evidenceforgod #Understandingchristianity #faithvsscience #seekingtruth #logicandbellief # christianity101 #questioningAtheism #Debunkingmyths #godandise 3d @startalk @ samshamoun @dailydoseofwisdom @empathetic_mindfury @spacerewind @technoplusmedia @cosmoknowledge @ theMessageChannel1 @curiositysp @veritasium @ kapchatfield.07 @ ken.arrington @tedtoks @ the.anonymous @offthekirbb  Bable Verse  Bable  Genèse 20: 1-19, 21: 1-2
 
 Job 42: 102
 

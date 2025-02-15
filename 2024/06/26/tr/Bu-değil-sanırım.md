@@ -38,7 +38,7 @@ Romalılar 4:22 - 23
 Galatyalılar 5: 6
 
 
-Daha fazla bilgi edin ~ ~~ Web sitesi: www.liveabove3d.com
+Daha fazla bilgi edin   Web sitesi: www.liveabove3d.com
 
 YouTube: www.youtube.com/@live.above.3d
 

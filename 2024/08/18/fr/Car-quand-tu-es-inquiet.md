@@ -39,7 +39,7 @@ Shalom.
 
 #immigrants #globalwarming #worry #faith #Believe #Christian #Love #Jesus #Christ
 
-#Viral #Foryou # liveAbove3d #god #yhwhwhwing #YAHWEH #ChristianaporoGorEtic ieveinjesus #ReasonsForfaith #Evidenceforgod #UnderstandingChristianity #faithvsscience #seekingtruth #logicandbelief # christianity101 #questioningAtHeism #DeBunkingMyths #godandscience #DiscoveringFaith #ChristianLiv 3d @ live-above-3d @ Startalk @samshamoun @dailydoseofwisdom @empathetic_mindfulness @spacerewind @technoplusmedia @cosmoknowledge @ theMessageChannel1 @curiositysp @veritasium @ kapchatfield.07 @ ken.arrington @tedtoks @ the.anonymous.prophet @offth-wemberb @The~ Buble Versewewwing. 34
+#Viral #Foryou # liveAbove3d #god #yhwhwhwing #YAHWEH #ChristianaporoGorEtic ieveinjesus #ReasonsForfaith #Evidenceforgod #UnderstandingChristianity #faithvsscience #seekingtruth #logicandbelief # christianity101 #questioningAtHeism #DeBunkingMyths #godandscience #DiscoveringFaith #ChristianLiv 3d @ live-above-3d @ Startalk @samshamoun @dailydoseofwisdom @empathetic_mindfulness @spacerewind @technoplusmedia @cosmoknowledge @ theMessageChannel1 @curiositysp @veritasium @ kapchatfield.07 @ ken.arrington @tedtoks @ the.anonymous.prophet @offth-wemberb @The Buble Versewewwing. 34
 
 Matthieu 11:15
 

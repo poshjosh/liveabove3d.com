@@ -64,7 +64,7 @@ Reddit: Live-Above-3D www .Reddit.com/User/Live-Above-3D
 
 Instagram: www.instagram.com/live.above.3d
 
-Facebook: /www.facebook.com/profile/100092339087423 ~ ~~
+Facebook: /www.facebook.com/profile/100092339087423  
 
 #viral #foryou #liveabove3d #god #jesus #christianapologetics #loveofgod #faithandreason #truthinchristianità #scienceandfaith #ChristianAnicityExplained #reasonsForfesFace #deekingthar #seekingthar #seekingthar #seethuth #seethuth #seethuth #seethuth #seethuth #seekinghuth #seethuth #seethuth #seekinghophinghophoph #edeetuth CHIRISHITITY101 #questioningatheism #debunkingmyths #godandscience # DiscoveringFaith #ChristianLiving #Blessed #Hope #inspiration #Beyondthephysical
 

@@ -54,7 +54,7 @@ sito web: liveabove3d.com
 
 YouTube: www.youtube.com/@live.above.3d
 
-~ ~~ tiktok: www.tiktok.com/@live.above.3d
+  tiktok: www.tiktok.com/@live.above.3d
 
 Twitter: @live_above_3d twitter.com/live_above_3d
 
@@ -64,7 +64,7 @@ Instagram: www.instagram.com/live.above.3d
 
 Facebook: /www.facebook.com/profile/100092339087423
 
-~ #viral #foryou #liveabove3d #god #jesus #christianapologetics #loveofgod #faithandreason #truthinchristianità #scienceandfaendfaith #christianityexplained #beliedeinjesus #reasonsForfidenceFith #1011 Interrogativotheism #debunkingmyths #godandscience #discoveringfaith #christianliving #blessed #hope #inspiration #beyondthephysical
+ #viral #foryou #liveabove3d #god #jesus #christianapologetics #loveofgod #faithandreason #truthinchristianità #scienceandfaendfaith #christianityexplained #beliedeinjesus #reasonsForfidenceFith #1011 Interrogativotheism #debunkingmyths #godandscience #discoveringfaith #christianliving #blessed #hope #inspiration #beyondthephysical
 
 @liveabove3d @samshamoun @dailydoseofwisdom @empacetic_mindfulne @offthekirb
 

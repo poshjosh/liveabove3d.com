@@ -84,7 +84,7 @@ Shalom.
 
 Bible Versets
 
-~ ~ ~ ~ ~ ~ ~ ~ ~ ~~ combattre le bon combat de la foi. Saisissez la vie éternelle à laquelle vous avez été appelé, et vous avez fait la bonne confession en présence de nombreux témoins. - 1 Timothy 6:12
+          combattre le bon combat de la foi. Saisissez la vie éternelle à laquelle vous avez été appelé, et vous avez fait la bonne confession en présence de nombreux témoins. - 1 Timothy 6:12
 
 pour les armes de notre guerre ne sont pas de la chair, mais divinement puissante pour le démolition des bastions, alors que nous démolissons les spéculations et toutes les choses élevées soulevées contre la connaissance de Dieu , et prenez chaque pensée captive à l'obéissance du Christ. - 2 Corinthiens 10: 4-5
 
@@ -96,7 +96,7 @@ Recommandés
 
 • Anglais: https://liveabove3d.com/en/welcome/
 
-• Deutsch: https://liveabove3d.com/de/herzlich-willkommen/ ~ ~~
+• Deutsch: https://liveabove3d.com/de/herzlich-willkommen/  
 
 En savoir plus
 
@@ -104,7 +104,7 @@ En savoir plus
 
 • YouTube: www.youtube.com/@live.above.3d
 
-~~ ~ • tiktok: www.tiktok.com/@live.above.3d
+  • tiktok: www.tiktok.com/@live.above.3d
 
 • x: www.x.com/live_above_3d
 
@@ -112,6 +112,6 @@ En savoir plus
 
 • Instagram: www.instagram.com/live.above.3d
 
-• Facebook: www.facebook.com/profile/100092339087423om/live.above.3d/ ~ ~~
+• Facebook: www.facebook.com/profile/100092339087423om/live.above.3d/  
 
 • Facebook: www.facebook.com/profile/100092339087423

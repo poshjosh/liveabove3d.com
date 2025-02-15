@@ -42,7 +42,7 @@ Shalom.
 BIBLE VERSES
 
 
-Ephesians 1:17-21 ~ ~~ Genesi 20: 1-19, 21: 1-2
+Ephesians 1:17-21   Genesi 20: 1-19, 21: 1-2
 
 Giobbe 42: 102
 Giobbe 42:10

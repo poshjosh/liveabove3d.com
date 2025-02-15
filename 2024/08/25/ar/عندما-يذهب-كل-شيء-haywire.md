@@ -42,7 +42,7 @@ hmmm
 
 #Viral #foralou #liveabove3d #god #yhwh #yahweh #ChristianaPologicstics #loveofgod #loveofgod faithandreason #truthinchristianity #scienceandfaith #ChristianityExplied #believeInjesus #Reasonsforfaith #Evidenceforgodgodgodgodgodgodgodgodgodgodgodgodged #faithiMatiMiStizing #hope #inspiration #beyondthephysical
 
-live. أعلاه IRB ~ ~~
+live. أعلاه IRB  
 
 تعرف على المزيد
 
@@ -50,13 +50,13 @@ live. أعلاه IRB ~ ~~
 
 youtube: www.youtube.com/@live.above.3d
 
-~ tiktok : www.tiktok.com/@live.above.3d
+ tiktok : www.tiktok.com/@live.above.3d
 
 Twitter: www.twitter.com/live_above_3d
 
-reddit: www.reddit.com/user/live-above-3d ~ ~~
+reddit: www.reddit.com/user/live-above-3d  
 
-Instagram: www.instagram.com/live.above.3d ~~ متى 6: 8
+Instagram: www.instagram.com/live.above.3d  متى 6: 8
 
 1 كورنثوس 10:31
 
@@ -66,7 +66,7 @@ Instagram: www.instagram.com/live.above.3d ~~ متى 6: 8
 
 ماثيو 5:44
 
-مزمور 2: 2-4 ~~ أفسس 5 : 1 (niv)
+مزمور 2: 2-4  أفسس 5 : 1 (niv)
 
 رومية 8: 5
 

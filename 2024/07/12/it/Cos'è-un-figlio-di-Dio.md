@@ -76,7 +76,7 @@ A cui la donna ha risposto: “Se ti avessi fatto andare, avrei dovuto farti tor
 
 "Attraverso Cristo - Dio ha scelto di accogliere l'umanità"
 
-"Dato che Dio non ha costretto Adamo ad andarsene, non costringerà nemmeno l'umanità a tornare" ~ ~~ "È una cosa legale" - ha detto il piccolo.
+"Dato che Dio non ha costretto Adamo ad andarsene, non costringerà nemmeno l'umanità a tornare"   "È una cosa legale" - ha detto il piccolo.
 
 "Gli scienziati comprendono le leggi e come non sono rotti - sicuramente lo capiranno", ho detto.
 
@@ -124,7 +124,7 @@ Instagram: www.instagram.com/live.above.3d
 
 Facebook: www.facebook.com/profile/100092339087423
 
-Versi biblici ~ ~~ Marco 16: 17-18
+Versi biblici   Marco 16: 17-18
 
 Giovanni 14: 12-14
 
@@ -135,7 +135,7 @@ Romani 8: 19-22
 
 Versi della Bibbia
 
-Marco 16: 17-18 ~~ ~ Giovanni 14: 12-14
+Marco 16: 17-18   Giovanni 14: 12-14
 
 Romani 8: 19-22
 

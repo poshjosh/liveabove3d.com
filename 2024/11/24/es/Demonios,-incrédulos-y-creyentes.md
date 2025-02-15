@@ -42,7 +42,7 @@ Comparta esto con alguien que necesita esta revelación.
 
 #viral #foryou #livebove3d #god #Jesus #christianapologetics Scienceandfaith #ChristianityExplained #BelieveInjesus #ReasonSforFaith #EvidenceForGod #understandingChristianity #FaITHVSSCIECE Thefysical
 
-Versos bíblicos ~~ ~
+Versos bíblicos  
 
 Lucas 8: 26-39
 

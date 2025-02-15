@@ -104,7 +104,7 @@ Romains 3:23 (amp)
 
 et peut être trouvé en lui \ [croire et s'appuyant sur lui \], n'ayant pas
 
-la justice de ma propre dérive de \ [mon obéissance à \] le ~ ~~ Law * et * ses rituels, mais \ [possédant \] que \ [véritable justice \]
+la justice de ma propre dérive de \ [mon obéissance à \] le   Law * et * ses rituels, mais \ [possédant \] que \ [véritable justice \]
 qui vient de la foi en Christ, la justice qui vient de
 Dieu sur la base de la foi
 Philippiens 3: 9 (ampli)

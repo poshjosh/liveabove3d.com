@@ -41,7 +41,7 @@ Speriamo di rispondere a queste domande e altro ancora.
 
 In 1 Giovanni 5 Verso 14, è scritto: “E questa è la fiducia che noi
 abbiamo in lui, che, se chiediamo qualcosa secondo la sua volontà, lo sente
-:" ~ ~~ Questo significa che Dio non ascolta ogni preghiera.
+:"   Questo significa che Dio non ascolta ogni preghiera.
 
 Okay; Cosa significa chiedere secondo la volontà di Dio?
 
@@ -388,7 +388,7 @@ Facebook:
 
 [<u> https://www.facebook.com/ Profilo/100092339087423 </u>] (https://www.facebook.com/profile/100092339087423)
 
-twitter: @live \ _above \ _3d <u> <https://twitter.com/live_obove_3d> ~~ ~ </u>
+twitter: @live \ _above \ _3d <u> <https://twitter.com/live_obove_3d>   </u>
 ** Come ricevere risposte alle tue preghiere. **
 
 1. Prega bene.
@@ -417,7 +417,7 @@ ecco l'idea:
 
 <Col Style = "Larghezza: 49%" />
 
-<Col Style = "Larghezza: 50%" /> ~ ~~ </colgroup>
+<Col Style = "Larghezza: 50%" />   </colgroup>
 <thead>
 
 <TR class = "header">
@@ -441,7 +441,7 @@ ecco l'idea:
 <TR Class = "Odd">
 <Td> Dio guarismi </td>
 <TD> Respingo questa malattia perché Gesù non soffriva e muore in
-vano. </td> ~~ ~ </tr>
+vano. </td>   </tr>
 </tbody>
 </table>
 ** 2 - Cambia le cose **
@@ -581,7 +581,7 @@ non sanno come materializzare tali risposte al regno fisico.
 ** Oggi, esporrò la fede e successivamente darò suggerimenti fattibili su come
 vivere per fede. **
 
-Sai: - che chiedi, è la fede richiesta per la tua preghiera ~ ~~ ascoltato e risposto.
+Sai: - che chiedi, è la fede richiesta per la tua preghiera   ascoltato e risposto.
 
 Per veramente ti dico, ** Se hai fede delle dimensioni di un seme di senape,
 Dirai ** a questa montagna ... Mathew 17:20.
@@ -1005,7 +1005,7 @@ annullare la risposta alla sua preghiera.
 Nella quarta settimana, l'accusatore si è trasferito di nuovo. Questa volta c'è stato stress
 nel luogo di lavoro della donna, stress da sua suocera e
 suo marito e suo figlio. Era facilmente arrabbiata, solo quella settimana. Aveva bisogno di
-sentire la parola di sicurezza di Dio. La chiesa era il posto dove stare. Tuttavia, nella chiesa ~~ ~ è stato chiesto loro di pregare per gli altri. Si sedette lì cercando di pregare,
+sentire la parola di sicurezza di Dio. La chiesa era il posto dove stare. Tuttavia, nella chiesa   è stato chiesto loro di pregare per gli altri. Si sedette lì cercando di pregare,
 mentre la sua mente vagava libera. Quindi è stata fatta una chiamata per i membri per dare
 
 per l'acquisto di una nuova auto per il pastore. La sua voce interiore ha suggerito che

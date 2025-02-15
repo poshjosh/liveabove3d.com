@@ -20,7 +20,7 @@ Ancak, üçten fazla boyut vardır; Ve zaman yok
 bildiğimiz gibi, daha yüksek boyutlarda.
 İbraniler Bölüm 11 ayetinde, İncil Tanrı'nın
 
-~~ ~~ ~~ ~~ ~~ ~~ ~~ ~~ dediği gibi “görünmeyen şeyler” yarattığını açıkça ortaya koymaktadır.
+        dediği gibi “görünmeyen şeyler” yarattığını açıkça ortaya koymaktadır.
 İlk başta, görünmez olan şeylerin görünür olan şeylerden daha az gerçek olduğu görülebilir; Ancak, İncil aksini söylüyor.
 
 o zaman 3 boyutlu şeylerden daha gerçek olan bu madde nedir?

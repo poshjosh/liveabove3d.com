@@ -51,7 +51,7 @@ Facebook: www.facebook.com/profile/100092339087423
 
 #viral #Foryou # liveabove3d #god #jesus #christianapotetics #LoveofGod # #god #jesus Foindreason #truthinchristianity #scienceNandfaith #ChristianityExplayé #BeLeeveInjesus #ReasonsForfaith #Evidenceforgod #UnderstandingChristianity #faithVsSciencement #seekingtruth #LogicMelief #goDandScienceScience #DiscEmSism #DeBunkingMyt Ianliving #BLed #Hope #inspiration #BeyondThephysical
 
-@ live.above.3d @ live_above_3d @ live-above-3d @samshamoun @dailydoseofwisdom @empathetic_mindfury @spacerewind @Technoplusmedia @cosmoknowledge ~~ Bible Lire
+@ live.above.3d @ live_above_3d @ live-above-3d @samshamoun @dailydoseofwisdom @empathetic_mindfury @spacerewind @Technoplusmedia @cosmoknowledge  Bible Lire
 
 3 Maintenant, le serpent était plus subtil que n'importe quelle bête du champ que le Seigneur Dieu avait fait. Et il a dit à la femme, oui, Dieu a-t-il dit, vous ne mangerez pas de chaque arbre du jardin?
 2 Et la femme a dit au serpent, nous pouvons manger du fruit des arbres du jardin:

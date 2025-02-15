@@ -60,7 +60,7 @@ Facebook: www.facebook.com/profile/100092339087423
 
 #Viral #Forou #Liveabove3d #god #jesus #christianapologetics # LoveOfgod #FaithandReason #truthinchristianity #sciencyandfaith #christianityExpligated #believeinjesus #reasonsforfaith #Faithvsscience #Seekingtruth #faithvsscience #goDicbingth #ghoDicith #bradi ChristianLiving #blessed #Hope #Inspiration #beyondthePhysical
 
-@Live.above .3D @Live_above_3d @Live-Aboove-3d @SamShamoun @DailyDoseOfwisdom @Empatetic_Mindourness @Technoplusmedia @Cosmoknowledge @TheChnoplusmedia ~~ ~ İncil ayetleri
+@Live.above .3D @Live_above_3d @Live-Aboove-3d @SamShamoun @DailyDoseOfwisdom @Empatetic_Mindourness @Technoplusmedia @Cosmoknowledge @TheChnoplusmedia   İncil ayetleri
 
 
 “Onlar tarafından görülecek diğerlerinin önünde doğruluğunuzu uygulamamaya dikkat edin. Eğer yaparsanız, cennetteki babanızdan hiçbir ödülünüz olmayacak.

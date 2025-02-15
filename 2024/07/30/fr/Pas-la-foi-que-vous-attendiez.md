@@ -37,7 +37,7 @@ Shalom.
 
 #Mindofgod #WhatwouldJesusDo #faith #Believe #Christian #Love #Jesus #Christ
 
-#Viral #Foryou # LiveAbove3d #god #YHWH #YAHWEH elieveinjesus #reasonsforfaith #Evidenceforgod #Understandingchristianity #faithvsscience #seekingtruth #logicandbellief # christianity101 #questioningAtheism #Debunkingmyths #godandise 3d @startalk @ samshamoun @dailydoseofwisdom @empathetic_mindulness @spacerewind @technoplusmedia @cosmoknowledge @ theMessageChannel1 @curiositysp @veritasium @ kapchatfield.07 @ ken.arrington @tedtoks @ the.anonymous @offthekirb ~~ir
+#Viral #Foryou # LiveAbove3d #god #YHWH #YAHWEH elieveinjesus #reasonsforfaith #Evidenceforgod #Understandingchristianity #faithvsscience #seekingtruth #logicandbellief # christianity101 #questioningAtheism #Debunkingmyths #godandise 3d @startalk @ samshamoun @dailydoseofwisdom @empathetic_mindulness @spacerewind @technoplusmedia @cosmoknowledge @ theMessageChannel1 @curiositysp @veritasium @ kapchatfield.07 @ ken.arrington @tedtoks @ the.anonymous @offthekirb ir
 
 YouTube: www.youtube.com/@live.above.3d
 

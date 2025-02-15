@@ -82,7 +82,7 @@ Instagram: www.instagram.com/live.above.3d
 
 Facebook: www.facebook.com/profile/100092339087423
 
-Versi biblici ~ ~~ Anche il mistero che è stato nascosto da secoli e dalle generazioni, ma ora è reso manifestato ai suoi santi:
+Versi biblici   Anche il mistero che è stato nascosto da secoli e dalle generazioni, ma ora è reso manifestato ai suoi santi:
 
 
 a cui Dio avrebbe fatto sapere quali sono le ricchezze della gloria di questo mistero tra i gentili; Che è Cristo in te, la speranza della gloria:

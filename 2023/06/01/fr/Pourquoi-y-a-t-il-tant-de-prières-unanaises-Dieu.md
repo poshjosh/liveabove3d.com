@@ -41,7 +41,7 @@ Nous espérons répondre à ces questions et plus encore.
 
 Dans 1 Jean 5 Verset 14, il est écrit: «Et c'est la confiance que nous
 avons en lui, que, si nous demandons quelque chose selon sa volonté, il nous entend
-nous:» ~ ~~ Cela signifie que Dieu n'entend pas chaque prière.
+nous:»   Cela signifie que Dieu n'entend pas chaque prière.
 
 D'accord; Que signifie demander selon la volonté de Dieu?
 
@@ -366,7 +366,7 @@ Facebook:
 
 [<u> https://www.facebook.com/ Profil / 100092339087423 </u>] (https://www.facebook.com/profile/100092339087423)
 
-Twitter: @Live \ _above \ _3d <u> <https://twitter.com/live_above_3d> ~~ ~ </u>
+Twitter: @Live \ _above \ _3d <u> <https://twitter.com/live_above_3d>   </u>
 
 ** Comment recevoir des réponses à vos prières. **
 
@@ -397,7 +397,7 @@ voici l'idée:
 <Colgroup>
 <col de style = "width: 49%" />
 
-<col de style = "width: 50%" /> ~ ~~ </colgroup>
+<col de style = "width: 50%" />   </colgroup>
 <Thead>
 
 <tr class = "header">
@@ -430,7 +430,7 @@ voici l'idée:
 <tr class = "Odd">
 <Td> Dieu me guérir </td>
 <Td> Je rejette cette maladie parce que Jésus n'a pas souffert et ne mourait pas dans
-vain. </td> ~~ ~ </tr>
+vain. </td>   </tr>
 </ tbody>
 </ table>
 ** 2 - Changez les choses **
@@ -557,7 +557,7 @@ Nous avons également noté que les réponses du ciel sont spirituelles, et de n
 ** Aujourd'hui, je vais exposer la foi et donner par la suite des conseils faisables sur la façon de vivre
 
 de vivre par la foi. **
-Savez-vous: - Que vous demandez, la foi requise pour que votre prière soit ~ ~~ entendu et répondu.
+Savez-vous: - Que vous demandez, la foi requise pour que votre prière soit   entendu et répondu.
 
 pour vraiment je vous le dis, ** Si vous avez la foi de la taille d'une graine de moutarde,
 vous diras ** à cette montagne… Mathew 17:20.

@@ -137,7 +137,7 @@ hermanos, y dijo: He aquí que he soñado un sueño más; y, he aquí,
 
 El sol y la luna y las once estrellas me hicieron una reverencia.
 ** <up> 10 </up> ** Y se lo contó a su padre, y a sus hermanos: y
-su padre lo reprendió y le dijo: ¿Cuál es este sueño de que tú ~~ ~ ¿Hast Dreamed? ¿Deberíamos yo y tu madre y tus hermanos llegar a inclinares
+su padre lo reprendió y le dijo: ¿Cuál es este sueño de que tú   ¿Hast Dreamed? ¿Deberíamos yo y tu madre y tus hermanos llegar a inclinares
 
 a ti mismo a la tierra?
 ** <up> 11 </up> ** Y sus hermanos lo envidiaron; Pero su padre observó
@@ -153,7 +153,7 @@ en un pozo, y diremos que alguna bestia malvada lo ha devorado: ** y
 Veremos qué será de sus sueños. **
 
 Génesis 37: 18-20
-** <Pup> 26 </up> y Judá dijo a sus hermanos: ¿Qué ganancias es si ~ ~~ matamos a nuestro hermano, y ocultamos su sangre? **
+** <Pup> 26 </up> y Judá dijo a sus hermanos: ¿Qué ganancias es si   matamos a nuestro hermano, y ocultamos su sangre? **
 
 ** <Pup> 27 </up> Ven, y vamos a venderlo a los ishmeelitas, y dejemos que
 
@@ -161,7 +161,7 @@ no nuestra mano sea sobre él; porque él es nuestro hermano y nuestra carne. Y 
 hermanos estaban contentos. **
 
 Génesis 37: 26-27
-<sup> 7 </up> y el <span class = "smallcaps"> Lord </span> apareció en ~~ ~ Abram, y dijo, a tu semilla daré esta tierra: y se construyó
+<sup> 7 </up> y el <span class = "smallcaps"> Lord </span> apareció en   Abram, y dijo, a tu semilla daré esta tierra: y se construyó
 
 él un altar a la <span class = "SmallCaps"> Lord </span>, quien le pareció
 a él.

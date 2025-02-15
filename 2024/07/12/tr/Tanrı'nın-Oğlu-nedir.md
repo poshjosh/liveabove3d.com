@@ -70,7 +70,7 @@ Kadının cevapladığı: “Eğer gitmene neden olsaydım, o zaman geri dönmen
 
 “Mesih aracılığıyla - Tanrı insanlığı tekrar karşılamayı seçti”
 
-“Tanrı Adem'i gitmeye zorlamadığından, insanlığı geri dönmeye zorlamayacak” ~ ~~ “Bu yasal bir şey” - küçük olan.
+“Tanrı Adem'i gitmeye zorlamadığından, insanlığı geri dönmeye zorlamayacak”   “Bu yasal bir şey” - küçük olan.
 
 “Bilim adamları yasaları ve nasıl kırılmadıklarını anlıyorlar - kesinlikle bunu anlayacaklar” - dedim.
 
@@ -98,9 +98,9 @@ Shalom.
 
 #Sonsofgod #neilgassetyson #scientists #belie #christian #love #faith #yahweh #god
 
-#viral #joryou #LiveabovePetics #LoveOfgod #Saithanbrason #Truthinybrebon Us #reasonSforfaith #EvidenceForgod #UnderstandingChristianity #Faithvsscience #Seekingtruth #LogicandBelief #Christianity101 #GoDandscience #DiscoveringFaith #GoDandscience #DiscoveringFaith #ChristianLiving #blessical ~~ @Inspiration #beyondthysical #Hope @Inspiration #Bey @samShamoun @ DailyDoseOfwisdom @Empatetic_Mindourness @Spacerewind @Technoplusmedia @Cosmoknowledge @themessagechannel1 @curiosysp @veritasium @kapchatfield.07 @ken.arrington @tedtoks @the.anonymous.prophet @ofoffthekirb @starb @starb @starb @~~ ~ @wfthekirb @startalk
+#viral #joryou #LiveabovePetics #LoveOfgod #Saithanbrason #Truthinybrebon Us #reasonSforfaith #EvidenceForgod #UnderstandingChristianity #Faithvsscience #Seekingtruth #LogicandBelief #Christianity101 #GoDandscience #DiscoveringFaith #GoDandscience #DiscoveringFaith #ChristianLiving #blessical  @Inspiration #beyondthysical #Hope @Inspiration #Bey @samShamoun @ DailyDoseOfwisdom @Empatetic_Mindourness @Spacerewind @Technoplusmedia @Cosmoknowledge @themessagechannel1 @curiosysp @veritasium @kapchatfield.07 @ken.arrington @tedtoks @the.anonymous.prophet @ofoffthekirb @starb @starb @starb @  @wfthekirb @startalk
 
-~~ @wwet @wb3:
+ @wwet @wb3:
 
 YouTube: www.youtube.com/@live.above.3d
 
@@ -116,7 +116,7 @@ Instagram: www.instagram.com/live.above.3d
 
 Facebook: www.facebook.com/profile/100092339087423
 
-İncil Ayetleri ~ ~~ Mark 16: 17-18
+İncil Ayetleri   Mark 16: 17-18
 
 Yuhanna 14: 12-14
 
@@ -126,7 +126,7 @@ Romalılar 8: 19-22
 
 İncil Ayetleri
 
-Mark 16: 17-18 ~~ ~ John 14: 12-14
+Mark 16: 17-18   John 14: 12-14
 
 
 Romalılar 8: 19-22

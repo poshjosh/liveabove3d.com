@@ -60,7 +60,7 @@ Facebook: www.facebook.com/profile/100092339087423
 
 #viral #Foryou # liveaBove3d #god #jesus #CristianapoETtics # LiveAbove3d #God #Jesus #CristianapOletics Loveofgod #faithandreason #truthinchristianity #scienceNandfaith #ChristianityExplayé #BelieveInjesus #ReasonsForfaith #Evidenceforgod #UnderstandingChristiany Foi #ChristianLiving #BLESSED #HOPE #inspiration #BeyondThephysical
 
-@ live.above .3d @ live_above_3d @ live-above-3d @samshamoun @dailydoseofwisdom @empathetic_mindfury @spacerewind @technoplusmedia @cosmoknowledge alk ~~ ~ Versets bibliques
+@ live.above .3d @ live_above_3d @ live-above-3d @samshamoun @dailydoseofwisdom @empathetic_mindfury @spacerewind @technoplusmedia @cosmoknowledge alk   Versets bibliques
 
 
 «Veillez à ne pas pratiquer votre justice devant les autres pour être vus par eux. Si vous le faites, vous n'aurez aucune récompense de votre père céleste.

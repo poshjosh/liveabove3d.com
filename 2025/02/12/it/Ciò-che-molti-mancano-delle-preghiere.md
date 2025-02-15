@@ -64,7 +64,7 @@ Ulteriori informazioni
 
 • tiktok: www.tiktok.com/@live.above.3d
 
-• x: www.x.com/live_above_3d ~ ~~
+• x: www.x.com/live_above_3d  
 
 • Reddit: www.reddit.com/user/live-above-3d
 

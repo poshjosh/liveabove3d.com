@@ -34,7 +34,7 @@ shalom.
 
 #viral #Foryou #Liveabove3d #Jesus #ChesusApologetics #LoveOfGod #FaitHaason # TruthInChristianity #ScienceAndFaith #ChristianityExplained #BelieveInJesus #ReasonsForFaith #EvidenceForGod #UnderstandingChristianity #FaithVsScience #SeekingTruth #LogicAndBelief #Christianity101 #QuestioningAtheism #DebunkingMyths #GodAndScience #DiscoveringFaith #christianliving #blessed #hope #inspiration #BeyondThePhysical
 
-@live.above. 3d @live_above_3d @live-above-3d @samshamoun @dailydoseofwisdom @empatetic_mindfulness @spacerewind @technoplusmedia ~~
+@live.above. 3d @live_above_3d @live-above-3d @samshamoun @dailydoseofwisdom @empatetic_mindfulness @spacerewind @technoplusmedia 
 
 saperne di più
 
@@ -54,7 +54,7 @@ Facebook: www.facebook.com/profile/100092339087423
 
 Bible Versees
 
-~ 2 Guardando a Gesù l'autore e il finitore della nostra fede; che per la gioia che fu messo davanti a lui sopportava la croce, disprezzando la vergogna, ed è messo giù alla destra del trono di Dio.
+ 2 Guardando a Gesù l'autore e il finitore della nostra fede; che per la gioia che fu messo davanti a lui sopportava la croce, disprezzando la vergogna, ed è messo giù alla destra del trono di Dio.
 
 3 Per considerarlo che ha sopportato una tale contraddizione dei peccatori contro se stesso, per non essere stanchi e deboli nelle tue menti.
 

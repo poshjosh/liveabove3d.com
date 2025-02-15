@@ -90,7 +90,7 @@ birkaç inanan. Bunu yüzlerce insanla denediğinizi göreyim. Sonra,
 
 dünyanın her yerinden insanlar. Bütün dinler İsa'yı gördüğünü iddia ediyor.
 Ne kitle yanılsama. Özellikle, birçok Hıristiyan İsa'yı gördüğünü iddia eden en az bir tane
-Hıristiyan bilir. Yüz ~~ ~ ~ ~ ~ ~ ~ ~ ~ ~ ~ ~ ~ ~ ~ ~ ~ ~ ~ ~ ~ ~ ~ ~ ~ ~ ~ ~ ~ ~ ~ ~ ~ ~ ~ ~ ~ ~ ~ ~ ~ ~ ~ ~ ~ ~ ~ ~ ~ ~ ~ ~ ~ ~ ~ ~ ~ ~ ~ ~ ~ ~ ~ ~ ~ ~ ~ ~ ~ ~ ~ ~ ~ ~ ~ ~ ~ ~ ~ Biz
+Hıristiyan bilir. Yüz                                                                                Biz
 
 20.000 kişiye kadar bakıyoruz. Böylece, İsa bugüne kadar ortaya çıkmaya devam ediyor. Bu delilik. Yine de daha fazlası var.
 

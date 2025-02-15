@@ -101,7 +101,7 @@ Facebook: www.facebook.com/profile/100092339087423
 
 Les versets bibliques
 
-~ dans le temps passé, vous avez marché avec le cours de ce monde, selon le monde, selon le monde, selon le monde, selon le monde, selon le monde, selon le monde, selon le cours, selon le cours, selon le cours, selon le cours, selon le cours, selon le cours, selon le cours, selon le cours, selon le cours, selon le cours, selon le cours, selon le cours, selon le cours, selon le cours, selon le cours, selon le cours, selon le cours, selon le cours, selon le cours du monde, selon le cours, selon le cours, selon le monde, selon Selon le monde, Selon les Versets Bible
+ dans le temps passé, vous avez marché avec le cours de ce monde, selon le monde, selon le monde, selon le monde, selon le monde, selon le monde, selon le monde, selon le cours, selon le cours, selon le cours, selon le cours, selon le cours, selon le cours, selon le cours, selon le cours, selon le cours, selon le cours, selon le cours, selon le cours, selon le cours, selon le cours, selon le cours, selon le cours, selon le cours, selon le cours, selon le cours du monde, selon le cours, selon le cours, selon le monde, selon Selon le monde, Selon les Versets Bible
 
 . Au prince de la puissance de l'air, l'Esprit qui travaille maintenant chez les enfants de la désobéissance:
 

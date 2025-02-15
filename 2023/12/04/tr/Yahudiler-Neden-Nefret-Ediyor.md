@@ -70,7 +70,7 @@ Daniel 10:20
 
 Yaratılış 6: 2
 
-Yaratılış 17: 3-4 ~ ~~ Tesniye 7: 6
+Yaratılış 17: 3-4   Tesniye 7: 6
 
 2 Samuel 7:24
 
@@ -80,7 +80,7 @@ Efesliler 1: 10-11
 
 2 Korintliler 5:17
 
-1 Petrus 2: 9 ~~ ~ 2 Petrus 1: 4
+1 Petrus 2: 9   2 Petrus 1: 4
 
 1 Yuhanna 4: 16b
 

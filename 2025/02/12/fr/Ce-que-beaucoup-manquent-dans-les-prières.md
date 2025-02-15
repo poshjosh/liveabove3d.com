@@ -60,11 +60,11 @@ En savoir plus
 
 • Site Web: www.liveabove3d.com
 
-~~ • YouTube: www.youtube.com/@live.above.3d
+ • YouTube: www.youtube.com/@live.above.3d
 
 • tiktok: www.tiktok.com/@live.above.3d
 
-• x: www.x.com/Live_above_3d ~ ~~
+• x: www.x.com/Live_above_3d  
 
 • reddit: www.reddit.com/user/live-above-3d
 

@@ -46,7 +46,7 @@ Lectura recomendada
 
 • https://read.ReSodyOfRealities.org/
 
-• https: //rudeodiederrealität.de/lesen ~ ~~
+• https: //rudeodiederrealität.de/lesen  
 
 • https://liveBove3d.com/2024/07/12/en/what-is-a-son-of-god/
 

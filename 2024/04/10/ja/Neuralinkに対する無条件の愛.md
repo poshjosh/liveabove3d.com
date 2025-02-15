@@ -30,15 +30,15 @@ Neuralinkの最初のバージョンは、特定の障害を持つ人々が心�
 
 ウェブサイト：http：//liveabove3d.com
 
-~~ YouTube：https：//www.youtube.com/@live.above.3d ~~
+ YouTube：https：//www.youtube.com/@live.above.3d 
 
 tiktok：https：//www.tiktok.com/@live.above.3d
 
 twitter： @live_above_3d https://twitter.com/live_above_3d
 
-~~ Reddit：live- 3d上記https://www.reddit.com/user/live-above-3d
+ Reddit：live- 3d上記https://www.reddit.com/user/live-above-3d
 
-~~ Instagram：https：//www.instagram.com/live.above.3d
+ Instagram：https：//www.instagram.com/live.above.3d
 
 Facebook ：https：//www.facebook.com/profile/100092339087423
 

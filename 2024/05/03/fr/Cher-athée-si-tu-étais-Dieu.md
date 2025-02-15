@@ -52,7 +52,7 @@ En savoir plus
 
 Site Web: Liveabove3d.com
 
-YouTube: www.youtube.com/@live.above.3d ~ ~~
+YouTube: www.youtube.com/@live.above.3d  
 
 tiktok: www.tiktok.com/@live.above.3d
 
@@ -66,4 +66,4 @@ Facebook: /www.facebook.com/profile/100092339087423
 
 #Dearatheist #Challenge #Christian #faith #apologétique #atheist
 
-# liveAbove3d #god #Jesus #ChristianapoGoroUtic Dieu #UnderstandingChristianity #Faithvsscience #seekingtruth #LogicAndBelief # christianity101 #questioningatheism #DeBunkingMyths #GodandScience #DiscoveringFaith #ChristianLiv ~~ @ DailyDoseofwisdom
+# liveAbove3d #god #Jesus #ChristianapoGoroUtic Dieu #UnderstandingChristianity #Faithvsscience #seekingtruth #LogicAndBelief # christianity101 #questioningatheism #DeBunkingMyths #GodandScience #DiscoveringFaith #ChristianLiv  @ DailyDoseofwisdom

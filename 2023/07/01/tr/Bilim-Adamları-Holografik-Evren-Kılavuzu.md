@@ -1,7 +1,7 @@
 Tiktok:
-[<U> https://www.tiktok.com/@live.above.3d </u>] (https://www.tiktok.com/@live.above.3d) ~~ ~~ ~~ ~ YouTube:
+[<U> https://www.tiktok.com/@live.above.3d </u>] (https://www.tiktok.com/@live.above.3d)     YouTube:
 
-[<U> https://www.youtube.com/@live.above.3d </u>] (https://www.youtube.com/@live.above.3d) ~ ~~ Instagram: <https://www.instagram.com/live.above.3d>
+[<U> https://www.youtube.com/@live.above.3d </u>] (https://www.youtube.com/@live.above.3d)   Instagram: <https://www.instagram.com/live.above.3d>
 Facebook:
 
 [<U> https://www.facebook.com/profile/100092339087423 </u> ] (https://www.facebook.com/profile/10009239087423)

@@ -12,7 +12,7 @@ Twitter: @Live \ _above \ _3d <https://twitter.com/live_above_3d>
 
 ** Bonjour, et bienvenue à: en direct au-dessus de la 3d. **
 
-~ Les prédicateurs de fin de fin Croyez que l'Antéchrist est vivant aujourd'hui.
+ Les prédicateurs de fin de fin Croyez que l'Antéchrist est vivant aujourd'hui.
 
 Voici les 10 premières personnes d'intérêt.
 

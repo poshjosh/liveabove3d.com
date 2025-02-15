@@ -2,7 +2,7 @@
 
 ** <u> conocimiento vs Apocalipsis - ¿Quién gana? </u> **
 
-Un científico, que resulta ser cristiano, se le preguntó lo siguiente ~ ~~ Pregunta.
+Un científico, que resulta ser cristiano, se le preguntó lo siguiente   Pregunta.
 ¿Por qué eliges adorar a un Dios, que no quería que la humanidad tuviera
 
 conocimiento? Eso no quería que la humanidad comiera el fruto del árbol

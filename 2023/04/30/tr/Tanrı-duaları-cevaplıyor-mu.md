@@ -73,13 +73,13 @@ Tanrı’nın zevki onun danışmanıyla çelişmez. Aslında, İşaya'da 46
 Ayet 10 Tanrı diyor: Danışmanım duracak ve tüm zevkimi yapacağım.
 
 Peki, karışıklık nerede?
-Tanrı istediği gibi yapsa da, hala onun ~~ ~ ~ ~ ~ ~ avukatıyla uyumludur. Bu, Tanrı’nın eylemlerinin bizim için bir gizem olması durumunda,
+Tanrı istediği gibi yapsa da, hala onun       avukatıyla uyumludur. Bu, Tanrı’nın eylemlerinin bizim için bir gizem olması durumunda,
 
 , çünkü onun danışmanını/bilgeliğini/iradesini bilmiyoruz.
 Hiç bir şey hakkında karışmışsanız, cennet kasıtlı olarak
 gizemli olmak değildir. Aksine, bu sizin açınızdan bilgi eksikliğidir. Bu bilgi eksikliğine, James 1 ayet 5'te yazılmıştır: eğer herhangi biriniz bilgelikten yoksunsa, Tanrı'ya sormasına izin verin, tüm insanlara liberal olarak giren ve
 
-~~ ~ ~ ~ ~ Ve ona verilecek.
+     Ve ona verilecek.
 oldukça açıktır:
 
 1 \. Tanrı istediği gibi yapar.
@@ -199,7 +199,7 @@ Bu bir şaka gibi görünüyor. Demek istediğim, Cennetimiz Beck ve Call? Yanl�
 İsa'nın Babalığı hakkında
 
 dualara verilen cevaplarla ilgili söyledikleri.
-10 almayı soran herkes için; Buluyor; Ve ona ~~ ~ ~ ~ ~ ~ ~ ~ ~ kapıyı açacak. 11 Sizin aranızda hangi baba, eğer oğlu
+10 almayı soran herkes için; Buluyor; Ve ona          kapıyı açacak. 11 Sizin aranızda hangi baba, eğer oğlu
 bir balık isterse, ona bir yılan verecek? 12or
 bir yumurta isterse, ona bir akrep verecek mi?
 
@@ -209,7 +209,7 @@ Luka 11: 10-12
 ona iyi şeyler verecek !
 
 Matthew 7:11
-Tekrar söylüyorum, cennet dualarımıza cevap vermek için düzenleniyor. Sorduğumuzda ve Tanrı ~~ ~~ cevaplar almamız gerekir. Ancak, bu sonraki gerçek genellikle bazı Hıristiyanların cevap almasını önler.
+Tekrar söylüyorum, cennet dualarımıza cevap vermek için düzenleniyor. Sorduğumuzda ve Tanrı   cevaplar almamız gerekir. Ancak, bu sonraki gerçek genellikle bazı Hıristiyanların cevap almasını önler.
 
 1. ** Şüphe (günah değil) bazılarının cevap almasını engeller. **
 Belirli bir adam hırsızlık için hapiste idi. Daha sonra avukatı, talepte bulunacak şekilde kayıt defterine miras aldığı bazı arazilerin belgelerini aldı. Kayıt Defteri
@@ -245,7 +245,7 @@ Sağlık veya tanıtım gibi, Hıristiyanların genellikle soracak inancına sah
 derhal. Ancak, cevabı almak için genellikle sabır gerektirir.
 Sabır, birçok Hıristiyanın yanlış anlaşıldığı kısımdır.
 
-bu serinin 3. Bölümünde, ~~ ~ zihninizi değiştirecek ve dualarınızı cevaplamak için size bir avantaj sağlayacak bir şekilde sabrı parçalayacağız.
+bu serinin 3. Bölümünde,   zihninizi değiştirecek ve dualarınızı cevaplamak için size bir avantaj sağlayacak bir şekilde sabrı parçalayacağız.
 ** <u> Bölüm 3 </u> **
 \*Sizinle konuşurken bile, hayatınızın
 Korku ile korunan alanları var.

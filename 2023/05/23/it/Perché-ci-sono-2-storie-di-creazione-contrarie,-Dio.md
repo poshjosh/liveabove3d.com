@@ -72,7 +72,7 @@ Le parole riempite di fede cadono su una tessa a 4-dimensionali, per rivelare la
 ombra tridimensionale e questa ombra tridimensionale è la nostra realtà.
 hmmm.
 
-Permettimi ancora una volta, di dire che questa realtà è un'ombra, un'immagine, un ologramma ~~ ~ se vuoi, della cosa reale.
+Permettimi ancora una volta, di dire che questa realtà è un'ombra, un'immagine, un ologramma   se vuoi, della cosa reale.
 
 Fammi sapere cosa ne pensi, nella sezione commenti.
 Grazie per l'ascolto.

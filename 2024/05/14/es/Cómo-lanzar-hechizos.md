@@ -54,7 +54,7 @@ Sitio web: liveBove3d.com
 
 YouTube: www.youtube.com/@live.above.3d
 
-~ ~~ tiktok: www.tiktok.com/@live.above.3d
+  tiktok: www.tiktok.com/@live.above.3d
 
 Twitter: @live_above_3d twitter.com/live_above_3d
 

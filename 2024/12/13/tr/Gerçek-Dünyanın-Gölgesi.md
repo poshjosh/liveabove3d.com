@@ -36,4 +36,4 @@ Shalom.
 @Live.Above.3d @Live_Aby_Aby_Aby_Aby_Aby_Aby_Aby_Aby_AbySe @Spacerewind @ Technoplusmedia @Cosmoknowledge @themessagechannel1 @Curiosysp @veritasium @kapchatfield.07 @ken.arrington @tedtoks @the.anony.prophet @Offthekirb @startalk
 
 
-~ #FYPOWINGISIGHTS #Funnyvideos #Sypideos yukarıya #Riverdale #hermionelodge #veronicalodge #RiverdaleEdits #RiverDalescenes #RiverDaleseason6 #justinafeFfects #FYP #Viralal
+ #FYPOWINGISIGHTS #Funnyvideos #Sypideos yukarıya #Riverdale #hermionelodge #veronicalodge #RiverdaleEdits #RiverDalescenes #RiverDaleseason6 #justinafeFfects #FYP #Viralal

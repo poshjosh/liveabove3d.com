@@ -42,7 +42,7 @@ Bunu bu vahiye ihtiyaç duyan biriyle paylaşın.
 
 #viral #foryou #LiveAbove3D #god #jesus #ChristianApologetics #LoveOfGod #FaithAndReason #TruthInChristianity # ScienCandFaith #christianityExpleplied #believeInjesus #reasonsforfaith #AvenceForgod #understanstingtruth #Faithvsscience #seekingtruth #Logicandbelief #Christianity101 Thephysical
 
-İncil ayetleri ~~ ~
+İncil ayetleri  
 
 Luka 8: 26-39
 

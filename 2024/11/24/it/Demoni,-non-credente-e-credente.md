@@ -42,7 +42,7 @@ Condividilo con qualcuno che ha bisogno di questa rivelazione.
 
 #viral #foryou #LiveAbove3D #god #jesus #ChristianApologetics #LoveOfGod #FaithAndReason #TruthInChristianity # ScienceAndFaith #ChristianityExplained #BelieveInJesus #ReasonsForFaith #EvidenceForGod #UnderstandingChristianity #FaithVsScience #SeekingTruth #LogicAndBelief #Christianity101 #QuestioningAtheism #DebunkingMyths #GodAndScience #DiscoveringFaith #christianliving #blessed #hope #inspiration #BeyondThePhysical
 
-BIBLE VERSES ~~ ~
+BIBLE VERSES  
 
 Luke 8: 26-39
 

@@ -14,7 +14,7 @@ Tanrı Yargıç - Mezmur 96:13
 
 Şeytan suçlayıcıdır - Vahiy 12:10
 
-~ ~~ Çok sayıda tanık var - İbraniler 12: 1
+  Çok sayıda tanık var - İbraniler 12: 1
 
 İnanç kanıttır - İbraniler 11: 1
 
@@ -108,6 +108,6 @@ Instagram: www.instagram.com/live.above.3d
 
 Facebook: www.facebook.com/profile/10009239087423
 
-~~ #Viral #Foryou #Liveabove3d #god #jesus #christianapologetics #loveofgod #faithandreason #truthinchristianity #sciefait #christianityExplained #Christianity101 #Questioningatheism #debunkingMyths #goDandscience #DiscoveringFaith #christianLiving #blessed #hope #inspiration #beyondthePhysical
+ #Viral #Foryou #Liveabove3d #god #jesus #christianapologetics #loveofgod #faithandreason #truthinchristianity #sciefait #christianityExplained #Christianity101 #Questioningatheism #debunkingMyths #goDandscience #DiscoveringFaith #christianLiving #blessed #hope #inspiration #beyondthePhysical
 
 @Live.above.3d @Live_Above_3d @Live-wove-@Samshamoun @DailyDoseOfwind @Emprety_Minderess @Spacerewind @Technoplusmedia @Cosmuriuos @Chatiuos @CosmuriUS @Techatiuos. @Ken.arrington @tedtoks @the.anonym.prophet @offthekirb @startalktfield.07 @Ken.arrington @tedtoks @the.anonymous.prophet @Offthekirb @startalk

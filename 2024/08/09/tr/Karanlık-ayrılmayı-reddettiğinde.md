@@ -41,7 +41,7 @@ Shalom.
 
 #PowerOflove #intercession #Faith #Believe #christian #Love #Jesus #Christ
 
-#viral #Foryou #LiveABove3d #god #yhwh #yahweh #christianapologetics #loveofgod #faithandrasit #truthinit #chinit #chinit #chinit #chinit Easonsforfaith #EvidenceForgod #UnderstandingChristianity #Faithvsscience #Seekingtruth #LogicandBelief #Christianity101 #GoDandscience #DiscoveringFaith #GoDandscience #DiscoveringFaith #ChristianLiving #blessical ~~ @Inspiration #beyondthysical #Hope @Inspiration #Bey @Startalk @ samshamoun @dailydoseofwisdom @Empathetic_Mindfulness @SpaceRewind @technoplusmedia @Cosmoknowledge @themessagechannel1 @CuriositySp @veritasium @kapchatfield.07 @ken.arrington @tedtoks @the.anonymous.prophet @offthekirb
+#viral #Foryou #LiveABove3d #god #yhwh #yahweh #christianapologetics #loveofgod #faithandrasit #truthinit #chinit #chinit #chinit #chinit Easonsforfaith #EvidenceForgod #UnderstandingChristianity #Faithvsscience #Seekingtruth #LogicandBelief #Christianity101 #GoDandscience #DiscoveringFaith #GoDandscience #DiscoveringFaith #ChristianLiving #blessical  @Inspiration #beyondthysical #Hope @Inspiration #Bey @Startalk @ samshamoun @dailydoseofwisdom @Empathetic_Mindfulness @SpaceRewind @technoplusmedia @Cosmoknowledge @themessagechannel1 @CuriositySp @veritasium @kapchatfield.07 @ken.arrington @tedtoks @the.anonymous.prophet @offthekirb
 
 LEARN MORE
 
@@ -60,7 +60,7 @@ Instagram: www.instagram.com/live.above.3d
 
 Facebook: www.facebook.com/profile/100092339087423
 
-İncil Ayetleri ~ ~~ Yaratılış 20: 1-19, 21: 1-2
+İncil Ayetleri   Yaratılış 20: 1-19, 21: 1-2
 
 
 İş 42: 10nesis 20: 1-19, 21: 1-2

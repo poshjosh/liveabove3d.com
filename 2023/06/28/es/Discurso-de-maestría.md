@@ -8,7 +8,7 @@
 *** ME: *** (Viendo la pasión del Cristo) las mismas manos que los arrojaron
 Las llevarán.
 
-Al inicio, es importante que los cristianos respondan a mentiras como ~ ~~ estos.
+Al inicio, es importante que los cristianos respondan a mentiras como   estos.
 Tales respuestas eventualmente nos hacen conscientes de qué palabras entran en nuestros
 
 corazones.

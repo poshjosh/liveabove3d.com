@@ -38,7 +38,7 @@ Romanos 4:22 - 23
 Gálatas 5: 6
 
 
-Aprenda más ~ ~~ Sitio web: www.liveBove3d.com
+Aprenda más   Sitio web: www.liveBove3d.com
 
 YouTube: www.youtube.com/@live.above.3d
 

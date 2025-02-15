@@ -52,7 +52,7 @@ Aprenda más
 
 Sitio web: liveBove3d.com
 
-YouTube: www.youtube.com/@live.above.3d ~ ~~
+YouTube: www.youtube.com/@live.above.3d  
 
 Tiktok: www.tiktok.com/@live.above.3d
 

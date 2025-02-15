@@ -24,7 +24,7 @@ Bu yeni soyun Patriği Üçüncü Adam olarak adlandırıyoruz.
 Yaratılış 1: 27'de Tanrı ilk Adem'i kendi imajında ​​yarattı.
 
 İkinci Adem'e gelince, İbranilerdeki İncil 1 ayet 3,
-~~ ~~ ~~ Tanrı'nın ekspres görüntüsü olduğunu kaydeder.
+   Tanrı'nın ekspres görüntüsü olduğunu kaydeder.
 
 İkinci Adem “görüntüde” değil, daha ziyade “görüntüdür”;
 Tanrı.
@@ -341,7 +341,7 @@ YouTube: <https://www.youtube.com/@live.above.3d >
 Instagram: <https://www.instagram.com/live.above.3d>
 Facebook: <https://www.facebook.com/profile/100092339087423>
 
-~~ @Live: @Live \ _above \ _3d <https://twitter.com/live_above_3d>
+ @Live: @Live \ _above \ _3d <https://twitter.com/live_above_3d>
 
 Reddit: Live-wove-3d <https://www.reddit.com/user/live-above-3d>
 ** < U> bağlantılar </u> **
@@ -355,7 +355,7 @@ kitap “Dördüncü Boyut ”Doktor David Yonggi Cho
 video <https://www.youtube.com /İzle? V = it1vkqjknry>
 
 Clip
-[https://youtube.com/clip/ugkx\_z7kncskbalslaw23y6rpgkfilue3ep7(https://youtube.com/clip/ugkx_z7ckscskscsfeququququququququququququ~ *<U> İncil Ayetleri </u> **
+[https://youtube.com/clip/ugkx\_z7kncskbalslaw23y6rpgkfilue3ep7(https://youtube.com/clip/ugkx_z7ckscskscsfeququququququququququququ *<U> İncil Ayetleri </u> **
 ** <pup> 26 </up> ** Ve Tanrı dedi ki,
 
 benzerliğimizden sonra imajımızda insan yapalım: ve Deniz balığı üzerinde ve
@@ -427,14 +427,14 @@ Yuhanna 5:19
 tehlikedeydi. Yoksul **. Sonra ortaya çıktı ve rüzgarı ve suyun öfkesini azarladı: ve durdular ve bir sakin oldu.
 
 Luka 8: 23-24
-** İsa ona dedi ki, ben diriliş ve hayatım: o benim içime inanıyor, yine de yaşayacak, ama yaşayacak **: ~ ~~ John 11:25
+** İsa ona dedi ki, ben diriliş ve hayatım: o benim içime inanıyor, yine de yaşayacak, ama yaşayacak **:   John 11:25
 
 ** <pup> 17 </up> ** ve ona
 
 Peygamber Esaias kitabına teslim edildi. Ve kitabı açtığında, yazıldığı yeri buldu
 ** <pup> 18 </up> Rab'bin Ruhu üzerimde, çünkü beni görevlendirdi İncil'i yoksullara vaaz etmek; Beni iyileştirmeye, esirlere kurtuluşu vaaz etmesi ve kör olanı kurtarmak için
 
-~~ ~~ ~~ ~~ ~~ ~~ ~~ ~~ ~~ ~~ ~~ ~~ ~ ~ ~ ~ ~ ~ ~ <pup> <pup> 19 </up> ** Rab'bin kabul edilebilir yılını vaaz etmek.
+                   <pup> <pup> 19 </up> ** Rab'bin kabul edilebilir yılını vaaz etmek.
 ** <pup> 20 </up> ** ve kitabı kapattı ve tekrar
 
 bakana verdi ve oturdu. Ve
@@ -442,7 +442,7 @@ sinagogundaki herkesin gözleri ona tutturuldu.
 ** <pup> 21 </up> ** Ve onlara söylemeye başladı, bu gün kulaklarınızda yerine getirilen bu
 Kutsal Kitap.
 
-Luka 4: 17-21 ~~ ve ** Tanrı onları kutsadı ve Tanrı onlara **, verimli ol ve
+Luka 4: 17-21  ve ** Tanrı onları kutsadı ve Tanrı onlara **, verimli ol ve
 
 dedi ve dünyayı yenileyin ve bastırın: ve ** Dominion var **
 Deniz balığı üzerinde ve havanın kümes hayvanı üzerinde ve ** Dünya üzerinde hareket eden her
@@ -456,7 +456,7 @@ Yaratılış 1:28
 Mathew 2: 1-2
 
 ** Sonra Pilatus ** tekrar yargı salonuna girdi ve **
-İsa'yı aradı ve ona dedi ki, Yahudilerin Kralı? ** ~ ~ ~ ~~ İsa O'na cevap verdi, senden bu kadar olduğunu söyle, yoksa başkaları da sana mı söylediniz?
+İsa'yı aradı ve ona dedi ki, Yahudilerin Kralı? **     İsa O'na cevap verdi, senden bu kadar olduğunu söyle, yoksa başkaları da sana mı söylediniz?
 Pilatus cevap verdi, ben bir Yahudi miyim? Kendi ulusunuz ve baş rahipler seni bana teslim ettiler: Ne yaptın?
 ** İsa cevap verdi, krallığım bu dünyadan değil: Krallığım
 

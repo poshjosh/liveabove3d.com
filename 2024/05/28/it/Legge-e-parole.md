@@ -14,7 +14,7 @@ Gesù è il nostro avvocato - 1 Giovanni 2: 1
 
 Satana è l'accusatore - Apocalisse 12:10
 
-~ ~~ C'è una moltitudine di testimoni - Ebrei 12: 1
+  C'è una moltitudine di testimoni - Ebrei 12: 1
 
 La fede è la prova - Ebrei 11: 1
 
@@ -108,6 +108,6 @@ Instagram: www.instagram.com/live.above.3d
 
 Facebook: www.facebook.com/profile/100092339087423
 
-~ ~ ~~ #viral #foryou #Liveabove3d #God #Jesus #ChristianApologics #LoveOfGod #FaitHandReason #TruthinChristianità #ScIenceAndFaandFaandFaandFaandFaandFaandFeath #SiTanceSexplained #EbelieSplained #ReekEnthing #RoEduth #RoEduth #RoEdhy 1 #questioningatheism #debunkingmyths #godandscience #discoveringfaith #christianliving #blessed #hope #inspiration #BeyondThePhysical
+   #viral #foryou #Liveabove3d #God #Jesus #ChristianApologics #LoveOfGod #FaitHandReason #TruthinChristianità #ScIenceAndFaandFaandFaandFaandFaandFaandFeath #SiTanceSexplained #EbelieSplained #ReekEnthing #RoEduth #RoEduth #RoEdhy 1 #questioningatheism #debunkingmyths #godandscience #discoveringfaith #christianliving #blessed #hope #inspiration #BeyondThePhysical
 
 @live.above.3d @live_above_3d @live-above-3d @samshamoun @dailydoseofwisdom @Empathetic_Mindfulness @SpaceRewind @technoplusmedia @Cosmoknowledge @themessagechannel1 @CuriositySp @veritasium @kapchatfield.07 @ken.arrington @tedtoks @the.anonymous.prophet @offthekirb @starktfield.07 @ken.arrington @tedtoks @the.anonymous.prophet @offthekirb @statalk

@@ -5,7 +5,7 @@
 *** Moi: *** (Regarder la passion du Christ) Les mêmes mains qui ont jeté les
 les emporteront.
 
-au début, il est important que les chrétiens répondent aux mensonges comme ~ ~~ ces.
+au début, il est important que les chrétiens répondent aux mensonges comme   ces.
 De telles réponses nous rendent finalement conscients de quels mots entrent dans nos cœurs
 
 .

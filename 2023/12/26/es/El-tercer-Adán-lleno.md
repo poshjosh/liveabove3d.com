@@ -481,7 +481,7 @@ del agua: y cesaron, y había una calma.
 
 Lucas 8: 23-24
 ** Jesús le dijo: Yo soy la resurrección y la vida: el que
-cree en mí, aunque él estaba muerto, pero vivirá **: ~ ~~ Juan 11:25
+cree en mí, aunque él estaba muerto, pero vivirá **:   Juan 11:25
 
 ** <up> 17 </up> ** y le entregaron el libro del
 
@@ -518,7 +518,7 @@ Mathew 2: 1-2
 
 ** Entonces Pilato ** Entró en la sala del juicio nuevamente, y ** llamó
 
-Jesús, y le dijo: ¿Eres el rey de los judíos? ** ~ ~~ Jesús le respondió: Digamos esta cosa de ti mismo, o otros
+Jesús, y le dijo: ¿Eres el rey de los judíos? **   Jesús le respondió: Digamos esta cosa de ti mismo, o otros
 te lo dijeron de mí?
 Pilato respondió, ¿soy judío? Tu propia nación y los principales sacerdotes me han entregado: ¿Qué has hecho?
 

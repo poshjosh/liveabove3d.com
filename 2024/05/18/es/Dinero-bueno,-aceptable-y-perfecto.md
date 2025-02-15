@@ -48,7 +48,7 @@ Instagram: www.instagram.com/live.above.3d
 
 Facebook: www.facebook.com/profile/100092339087423
 
-#Viral #foryou #liveBove3D #GOD #Jesus #ChristianApologetics #LoveOfGod #FaITHANDRASS #TRUTHINCHRISTIANITY #ScIENCEANDFAIT S #godandscience #discoveringfaith #ChristianLiving #blessed #HOPE #Inspiration #BeyondThePhysical ~~ ~
+#Viral #foryou #liveBove3D #GOD #Jesus #ChristianApologetics #LoveOfGod #FaITHANDRASS #TRUTHINCHRISTIANITY #ScIENCEANDFAIT S #godandscience #discoveringfaith #ChristianLiving #blessed #HOPE #Inspiration #BeyondThePhysical  
 
 @live.above.3d @live_above_3d @live-love-3d @samshamoun @DailyDoseOfWiSdom @Empathetic_Mindfhy @spacerewind @technoplusmedia @cosmoknowledge @themessessageChannel1 @curiososssp @veritasium @kapchield.07 @kenledge .prophet @offthekirb
 

@@ -60,7 +60,7 @@ Facebook: www.facebook.com/profile/100092339087423
 
 #viral #foryou #liveabove3d #jesus #Chesus #christianapologetics # LoveOfGod #FaithAndReason #TruthInChristianity #ScienceAndFaith #ChristianityExplained #BelieveInJesus #ReasonsForFaith #EvidenceForGod #UnderstandingChristianity #FaithVsScience #SeekingTruth #LogicAndBelief #Christianity101 #QuestioningAtheism #DebunkingMyths #GodAndScience #DiscoveringFaith #christianliving #blessed #hope #inspiration #BeyondThePhysical
 
-@live.above .3d @live_above_3d @live-above-3d @samshamoun @dailydoseofwisdom @empatetic_mindness @spacerewind @technoplusmedia ~~ ~ Versi della Bibbia
+@live.above .3d @live_above_3d @live-above-3d @samshamoun @dailydoseofwisdom @empatetic_mindness @spacerewind @technoplusmedia   Versi della Bibbia
 
 
 “Fai attenzione a non praticare la tua giustizia di fronte agli altri per essere visti da loro. Se lo fai, non avrai ricompensa da tuo padre in paradiso.

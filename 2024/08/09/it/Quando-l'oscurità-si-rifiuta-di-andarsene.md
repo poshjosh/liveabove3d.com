@@ -60,7 +60,7 @@ Instagram: www.instagram.com/live.above.3d
 
 Facebook: www.facebook.com/profile/100092339087423
 
-Versi biblici ~ ~~ Genesi 20: 1-19, 21: 1-2
+Versi biblici   Genesi 20: 1-19, 21: 1-2
 
 
 Giobbe 42: 10nesis 20: 1-19, 21: 1-2

@@ -143,7 +143,7 @@ pourtant, plus pour ses rêves et pour ses paroles.
 le soleil et la lune et les onze étoiles m'ont obéissé.
 ** <Up> 10 </sup> ** Et il l'a dit à son père, et à ses frères: et
 
-son père l'a réprimandé et lui a dit, quel est ce rêve que tu ~ ~~ ~ Hast rêvait? Est-ce que moi et ta mère et tes frères viennent en effet s'incliner
+son père l'a réprimandé et lui a dit, quel est ce rêve que tu    Hast rêvait? Est-ce que moi et ta mère et tes frères viennent en effet s'incliner
 nous-mêmes vers toi vers la terre?
 ** <Up> 11 </sup> ** Et ses frères l'envièrent; Mais son père a observé
 
@@ -161,7 +161,7 @@ dans une fosse, et nous dirons, une bête diabolique l'a dévoré: ** et
 Nous verrons ce qui deviendra ses rêves. **
 
 Genèse 37: 18-20
-** <Up> 26 </sup> et Judah a dit à ses frères, quel profit est-ce si ~ ~~ Nous tuons notre frère, et cachons son sang? **
+** <Up> 26 </sup> et Judah a dit à ses frères, quel profit est-ce si   Nous tuons notre frère, et cachons son sang? **
 
 ** <Up> 27 </sup> Venez, et venons-le aux Ishmeelites, et laissez
 pas notre main sur lui; car il est notre frère et notre chair. Et ses frères
@@ -169,7 +169,7 @@ pas notre main sur lui; car il est notre frère et notre chair. Et ses frères
 
 Genèse 37: 26-27
 
-<Up> 7 </sup> et le <span class = "smallcaps"> seigneur </span> est apparu jusqu'à ~~ ~ Abram, et dit, à ta semence, je donnerai cette terre: et il a construit
+<Up> 7 </sup> et le <span class = "smallcaps"> seigneur </span> est apparu jusqu'à   Abram, et dit, à ta semence, je donnerai cette terre: et il a construit
 il un autel au <span class = "smallcaps"> seigneur </span>, qui est apparu
 
 à lui.
@@ -180,7 +180,7 @@ où tu es un étranger, toute la terre de Canaan, pour une possession
 
 éternelle; Et je serai leur Dieu.
 Genèse 17: 8
-puis dit-il, ne crains pas, Daniel: car dès le premier jour que tu ~
+puis dit-il, ne crains pas, Daniel: car dès le premier jour que tu 
 a mis ton cœur à comprendre, et à t'en châtir devant ton
 
 Dieu, ton Des mots ont été entendus, et je suis venu pour tes mots.
@@ -201,7 +201,7 @@ Genèse 6: 2
 
 disant,
 
-** <Up> 4 < / Sup> ** Quant à moi, voici, mon alliance est avec toi, et tu ~
+** <Up> 4 < / Sup> ** Quant à moi, voici, mon alliance est avec toi, et tu 
 shalt être père de nombreuses nations.
 Genèse 17: 3-4
 

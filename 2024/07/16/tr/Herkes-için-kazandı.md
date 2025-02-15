@@ -34,7 +34,7 @@ Shalom.
 
 #viral #foryou #liveABove3d #god #jesus #christianapologetics #LoveOfgod #faithandreason # TruthinChristianity #sciencfaith #christianityExpliged #BelieveInjesus #Reasonsforfaith #Faithvsscience #Seekingtruth #Logicandbelya #Christianity101 #Inspiration #beyondThePhysical
 
-@Live.above. 3D @Live_Above_3d @Live-Aboove-3d @Samshamoun @DailyDoseofwisdom @Empatetic_Mindary @Spacerewind @technoplusmedia @Cosmoknowsp @theghnoplusmedia ~~
+@Live.above. 3D @Live_Above_3d @Live-Aboove-3d @Samshamoun @DailyDoseofwisdom @Empatetic_Mindary @Spacerewind @technoplusmedia @Cosmoknowsp @theghnoplusmedia 
 
 Daha fazla bilgi edinin
 
@@ -54,7 +54,7 @@ Facebook: www.facebook.com/profile/1000923390877423
 
 İncil Ayetler
 
-~ 2 İnancımızın yazarı ve bitiricisi İsa'ya bakmak; Haç'a katlanan, utançları hor gören ve Tanrı'nın tahtının sağ elinde yer alan haça katlanan sevinç için kim.
+ 2 İnancımızın yazarı ve bitiricisi İsa'ya bakmak; Haç'a katlanan, utançları hor gören ve Tanrı'nın tahtının sağ elinde yer alan haça katlanan sevinç için kim.
 
 3 Günahkarların kendisine karşı böyle bir çelişkisine katlanan onu düşünün, zihninizde yıpranmış ve bayılamazsınız.
 

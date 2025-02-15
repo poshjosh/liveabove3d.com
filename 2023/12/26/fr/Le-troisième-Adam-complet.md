@@ -486,7 +486,7 @@ déchaîné de l'eau: et ils ont cessé, et il y avait un calme.
 LUKE 8: 23-24
 
 ** Jésus lui a dit, je suis la résurrection, et la vie: Celui qui
-croit en moi, bien qu'il soit mort, mais il vivra **: ~ ~~ Jean 11:25
+croit en moi, bien qu'il soit mort, mais il vivra **:   Jean 11:25
 ** <Up> 17 </sup> ** Et il lui a été livré le livre du
 Prophète Esaias. Et quand il avait ouvert le livre, il a trouvé l'endroit
 
@@ -523,7 +523,7 @@ avons vu son étoile dans l'Est ** et sommes venus l'adorer.
 Mathew 2: 1-2
 
 ** puis Pilate ** est entré dans la salle du jugement, et ** a appelé
-Jésus, et lui a dit, tu es le roi des Juifs? ** ~ ~~ Jésus lui a répondu, disons-vous cette chose de toi-même, ou les autres
+Jésus, et lui a dit, tu es le roi des Juifs? **   Jésus lui a répondu, disons-vous cette chose de toi-même, ou les autres
 
 vous ont-elles dit de moi?
 

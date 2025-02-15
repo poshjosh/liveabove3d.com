@@ -142,7 +142,7 @@ Sitio web: <http://liveBove3d.com>
 
 YouTube:
 
-[<u> https://www.youtube.com/@live.above.3d </u>] (https://www.youtube.com/@live.above.3d) ~~ ~
+[<u> https://www.youtube.com/@live.above.3d </u>] (https://www.youtube.com/@live.above.3d)  
 
 Tiktok:
 

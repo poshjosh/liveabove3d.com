@@ -70,7 +70,7 @@ Daniel 10:20
 
 Génesis 6: 2
 
-Génesis 17: 3-4 ~ ~~ Deuteronomio 7: 6
+Génesis 17: 3-4   Deuteronomio 7: 6
 
 2 Samuel 7:24
 
@@ -80,7 +80,7 @@ Hebreos 9: 14-15
 
 2 Corintios 5:17
 
-1 Pedro 2: 9 ~~ ~ 2 Pedro 1: 4
+1 Pedro 2: 9   2 Pedro 1: 4
 
 1 Juan 4: 16b
 

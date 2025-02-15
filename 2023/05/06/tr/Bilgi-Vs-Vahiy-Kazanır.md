@@ -1,6 +1,6 @@
 <Live.above.3d@gmail.com>
 
-** <U> Bilgi Vs Vahiy - Kim kazanır? ~~ Soru.
+** <U> Bilgi Vs Vahiy - Kim kazanır?  Soru.
 
 Neden insanlığın bilgiye sahip olmasını istemeyen bir Tanrı'ya ibadet etmeyi seçiyorsunuz; Bu, insanlığın ağacın meyvesini yemesini istemedi
 bilgi.

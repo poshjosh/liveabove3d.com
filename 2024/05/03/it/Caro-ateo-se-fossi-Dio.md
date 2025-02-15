@@ -52,7 +52,7 @@ saperne di più
 
 sito Web: liveabove3d.com
 
-YouTube: www.youtube.com/@live.above.3d ~ ~~
+YouTube: www.youtube.com/@live.above.3d  
 
 tiktok: www.tiktok.com/@live.above.3d
 
@@ -64,7 +64,7 @@ Instagram: www.instagram.com/live.above.3d
 
 Facebook: /www.facebook.com/profile/100092339087423
 
-~
+
 
 #dearatheist #challenge #christian #faith #apologetics #atheist
 

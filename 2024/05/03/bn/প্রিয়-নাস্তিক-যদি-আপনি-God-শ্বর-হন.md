@@ -44,7 +44,7 @@ God শ্বর তাঁর অস্তিত্ব প্রমাণ কর
 
 যোহন 14: 8-14
 
-... আপনি ক্ষমতা পাবেন, এর পরে পবিত্র আত্মা আপনার উপরে এসেছেন: এবং আপনি জেরুজালেমে, সমস্ত জুডিয়া, সামেরিয়ায় এবং সমস্ত জেরুজালেমে আমার সাক্ষী হবেন পৃথিবীর প্রান্ত পর্যন্ত। Acts ~~
+... আপনি ক্ষমতা পাবেন, এর পরে পবিত্র আত্মা আপনার উপরে এসেছেন: এবং আপনি জেরুজালেমে, সমস্ত জুডিয়া, সামেরিয়ায় এবং সমস্ত জেরুজালেমে আমার সাক্ষী হবেন পৃথিবীর প্রান্ত পর্যন্ত। Acts 
 
 টিকটোক: www.tiktok.com/@live.above.3d .com/ব্যবহারকারী/লাইভ-আবোভ -3 ডি
 
@@ -52,10 +52,10 @@ God শ্বর তাঁর অস্তিত্ব প্রমাণ কর
 
 ফেসবুক:/www.facebook.com/profile/100092339087423
 
-~
+
 
 #dearatheist #challenge #christian #faith #apologetics #atheist
 
-#LiveAbove3D #god #jesus #ChristianApologetics #LoveOfGod #FaithAndReason #TruthInChristianity #ScienceAndFaith #ChristianityExplained #BelieveInJesus #ReasonsForFaith #EvidenceForGod #UnderstandingChristianity #Faithvssiance #Seekingtruth #logicandbelief #খ্রিস্টান ধর্মীয়তা #ডিবিউঙ্কিংমাইথস #গড্যান্ডসায়েন্স #ডিসকোভারিংফাইথ #ক্রিস্টিয়ানলাইভিং #বিওপিইওএসইওএসইএম ~~ মান ~~ মান ~~ মান ~~ মান
+#LiveAbove3D #god #jesus #ChristianApologetics #LoveOfGod #FaithAndReason #TruthInChristianity #ScienceAndFaith #ChristianityExplained #BelieveInJesus #ReasonsForFaith #EvidenceForGod #UnderstandingChristianity #Faithvssiance #Seekingtruth #logicandbelief #খ্রিস্টান ধর্মীয়তা #ডিবিউঙ্কিংমাইথস #গড্যান্ডসায়েন্স #ডিসকোভারিংফাইথ #ক্রিস্টিয়ানলাইভিং #বিওপিইওএসইওএসইএম  মান  মান  মান  মান
 
 মান @ ডেইলিডোসফউইসডম

@@ -55,7 +55,7 @@ Voici comment la Bible l'a dit:
 
 et il provoque à tous, à la fois petit et grand, riche et pauvre, libre et lié,
 
-recevoir une marque dans leur main droite, ou dans leur front: ~ ~~ et qu'aucun homme ne peut acheter ou vendre, sauver celui qui avait la marque, ou le nom
+recevoir une marque dans leur main droite, ou dans leur front:   et qu'aucun homme ne peut acheter ou vendre, sauver celui qui avait la marque, ou le nom
 de la bête, ou le numéro de son nom.
 
 Apocalypse 13 Verset 18: «Qu'il ait compréhension le nombre de

@@ -62,7 +62,7 @@ Gitmeden önce.
 İnsan Yaratıcısının tüm insan sorunlarına özgür bir çözüm sunduğunu biliyor muydunuz?
 Yaratıcımız, İbrahim Tanrısı, Isaac ve Jacob tüm insanları
 
-~~ ~~
+ 
 
 şu anda insanlığın karşılaştığı sorunlara tabi olmayacak yeni bir krallığa katılmaya davet ediyor.
 
@@ -116,7 +116,7 @@ birçok kişi olarak İbadet etmeyeceği gibi canavar imajı öldürülmelidir.
 
 ** <pup> 16 </up> ** Ve hem küçük hem de büyük, zengin ve
 
-fakir, özgür ve bağ, sağ ellerinde veya onların içinde bir işaret almasına neden olur. ~ Alınlar:
+fakir, özgür ve bağ, sağ ellerinde veya onların içinde bir işaret almasına neden olur.  Alınlar:
 
 ** <pup> 17 </up> ** ve hiç kimsenin alamayacağını veya satamayacağını,
 

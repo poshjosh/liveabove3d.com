@@ -23,7 +23,7 @@ pour l'esclavage.
 Vous voyez, personne n'a essayé de tuer Abraham, même si, comme Joseph, il avait
 
 une promesse de Dieu.
-Quant à Joseph, puisqu'il était le 11 de 12 fils, son rêve a fait sentir ses frères ~~ aînés que Dieu les a rejetés pour choisir Joseph.
+Quant à Joseph, puisqu'il était le 11 de 12 fils, son rêve a fait sentir ses frères  aînés que Dieu les a rejetés pour choisir Joseph.
 
 Ce rejet a hanté les frères et sœurs de Joseph au point qu'ils pensaient:
 "Vous savez quoi, tuons-le pour que son rêve ne se réalise pas."
@@ -46,7 +46,7 @@ vous confirmez la raison pour laquelle il ne vous a pas choisi dans le premier l
 
 <https://youtube.com/shorts/66qs6e5wo_q>
 
-<https://www.instagram.com/p/c0onahjrwoo> ~~ ** <<élière U> Versets bibliques </u> **
+<https://www.instagram.com/p/c0onahjrwoo>  ** <<élière U> Versets bibliques </u> **
 
 ** <u> Versets bibliques </u> **
 
@@ -66,7 +66,7 @@ Daniel 10:20
 
 Genèse 6: 2
 
-Genèse 17: 3-4 ~ ~~ Deutéronome 7: 6
+Genèse 17: 3-4   Deutéronome 7: 6
 
 2 Samuel 7:24
 
@@ -76,7 +76,7 @@ Hébreux 9: 14-15
 
 2 Corinthiens 5:17
 
-1 Pierre 2: 9 ~~ ~ 2 Pierre 1: 4
+1 Pierre 2: 9   2 Pierre 1: 4
 
 1 John 4: 16b
 

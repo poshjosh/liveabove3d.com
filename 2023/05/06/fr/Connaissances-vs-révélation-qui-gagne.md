@@ -2,7 +2,7 @@
 
 ** <u> Knowledge vs Revelation - Qui gagne? </u> **
 
-Un scientifique, qui se trouve être chrétien, a été interrogé ce qui suit ~ ~~ question.
+Un scientifique, qui se trouve être chrétien, a été interrogé ce qui suit   question.
 Pourquoi choisissez-vous d'adorer un Dieu, qui ne voulait pas que l'humanité ait
 
 la connaissance; Cela ne voulait pas que l'humanité mange le fruit de l'arbre
@@ -45,7 +45,7 @@ Cela signifie que l'autorité sur vous, une autorité comme les parents et le go
 Dieu a décidé à quelle connaissance à laquelle Adam pourrait avoir accès, tout comme les parents
 
 et le gouvernement décident à quelle connaissance un enfant peut avoir accès.
-Nous pouvons ainsi dire qu'il était humandement raisonnable et juste, pour que Dieu ~
+Nous pouvons ainsi dire qu'il était humandement raisonnable et juste, pour que Dieu 
 
 interdit à l'humanité de manger le fruit de l'arbre de la connaissance.
 Mais pourquoi interdire l'humanité? Point numéro deux.

@@ -33,7 +33,7 @@ Shalom.
 
 #Heaven #Jesus #Scientists #Believe #Christian #Love #faith #yahweh #god
 
-#viral #Foryou # liveAbove3d #god #Jesus #ChristianapoGetic easonsforfaith #Evidenceforgod #Understandingchristianity #faithvsscience #seekingtruth #logicandbellief # christianity101 #questioningAtheism #Debunkingmyths #godandise 3d @samshamoun @ DailyDoseOfWisdom @Empathetic_Mindfurfy @spacerewind @technoplusmedia @cosmoknowledge @ theMessageChannel1 @curiositysp @veritasium @ kapchatfield.07 @ ken.arrington @tedtoks @ the.anonymous.prophet @offthekirb @startalk ~~ir
+#viral #Foryou # liveAbove3d #god #Jesus #ChristianapoGetic easonsforfaith #Evidenceforgod #Understandingchristianity #faithvsscience #seekingtruth #logicandbellief # christianity101 #questioningAtheism #Debunkingmyths #godandise 3d @samshamoun @ DailyDoseOfWisdom @Empathetic_Mindfurfy @spacerewind @technoplusmedia @cosmoknowledge @ theMessageChannel1 @curiositysp @veritasium @ kapchatfield.07 @ ken.arrington @tedtoks @ the.anonymous.prophet @offthekirb @startalk ir
 
 YouTube: www.youtube.com/@live.above.3d
 

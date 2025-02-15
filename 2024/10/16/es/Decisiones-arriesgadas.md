@@ -100,4 +100,4 @@ Romanos 5:19
 
 #TRENDES #RISKYDECICIONES #StreetSmarts #WhichhhHhreligion #Answers #Christianity #Judaism #Islam #ATHEISM #ChristianApologetics #LoveOfGod #FaITHANDRASE #TRUTHINCHRISTIANITY #ScIENCEANDFAITH #ChristianityExplained #BelieveInjesus #ReasonSforFaith #EvidenceForGod YScience #discoveringfaith #ChristianLiving #blesed #Hope #Inspiration #BeyondThePhysical
 
-~ ~~ #ChristianLiving #blessed #Hope #Inspiration #BeyondThephysical
+  #ChristianLiving #blessed #Hope #Inspiration #BeyondThephysical

@@ -33,9 +33,9 @@ Shalom.
 
 #Heaven #jesus #scientists #believe #christian #Love #Faith #Yahweh #god
 
-#Viral #Foryou #Liveabove3d #god #christianapologetics #loveOfgod #shaithandReason #christhinity #ChriAinity #ChriAnity İnanç #EvidenceForgod #UnderstandingChristianity #Faithvsscience #Seekingtruth #LogicandBelief #Christianity101 #GoDandscience #DiscoveringFaith #GoDandscience #DiscoveringFaith #ChristianLiving #blessical ~~ @Inspiration #beyondthysical #Hope @Inspiration #Bey @samShamoun @ DailyDoseOfwisdom @Empatetic_Mindourness @Spacerewind @Technoplusmedia @Cosmoknowledge @themessagechannel1 @curiosysp @veritasium @kapchatfield.07 @ken.arrington @tedtoks @the.anonymous.prophet @ofoffthekirb @starb @starb @starb @~~ ~ @wfthekirb @startalk
+#Viral #Foryou #Liveabove3d #god #christianapologetics #loveOfgod #shaithandReason #christhinity #ChriAinity #ChriAnity İnanç #EvidenceForgod #UnderstandingChristianity #Faithvsscience #Seekingtruth #LogicandBelief #Christianity101 #GoDandscience #DiscoveringFaith #GoDandscience #DiscoveringFaith #ChristianLiving #blessical  @Inspiration #beyondthysical #Hope @Inspiration #Bey @samShamoun @ DailyDoseOfwisdom @Empatetic_Mindourness @Spacerewind @Technoplusmedia @Cosmoknowledge @themessagechannel1 @curiosysp @veritasium @kapchatfield.07 @ken.arrington @tedtoks @the.anonymous.prophet @ofoffthekirb @starb @starb @starb @  @wfthekirb @startalk
 
-~~ @wwet @wb3:
+ @wwet @wb3:
 
 
 YouTube: www.youtube.com/@live.above.3d

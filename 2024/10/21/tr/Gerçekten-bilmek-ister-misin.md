@@ -32,7 +32,7 @@ Yuhanna 15: 5
 
 Bu nedenle, tıpkı bir adamın günahı dünyaya girdiği gibi, günahtan ölüm ve böylece ölüm tüm insanlara yayıldı, çünkü hepsi günah işledi
 
-~~ ~ Romalılar 5:12
+  Romalılar 5:12
 
 [Tanrı'nın bilgeliği], bu çağın yöneticilerinin hiçbirinin anlamadığı; Çünkü anladılarsa, Zafer Efendisi'ni çarmıha germezlerdi.
 

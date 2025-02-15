@@ -32,7 +32,7 @@ Jean 15: 5
 
 Par conséquent, tout comme par un homme, le péché est entré dans le monde, et la mort par le péché, et ainsi la mort s'est propagée à tous les hommes, parce que tous les péchés
 
-~~ ~ Romains 5:12
+  Romains 5:12
 
 [La sagesse de Dieu], qu'aucun des dirigeants de cet âge n'a compris; Car s'ils l'avaient compris, ils n'auraient pas crucifié le Seigneur de la gloire.
 

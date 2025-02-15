@@ -38,7 +38,7 @@ Romani 4:22 - 23
 Galati 5: 6
 
 
-~~ sito Web: www.liveabove3d.com
+ sito Web: www.liveabove3d.com
 
 youtube: www.youtube.com/@live.above.3d
 

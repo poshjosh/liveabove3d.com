@@ -55,7 +55,7 @@ Así es como lo expresó la Biblia:
 
 y él causa todo, tanto pequeños como grandes, ricos y pobres, libres y vínculos,
 
-recibir una marca en su mano derecha, o en la frente: ~ ~~ y que ningún hombre podría comprar o vender, salvo el que tenía la marca, o el
+recibir una marca en su mano derecha, o en la frente:   y que ningún hombre podría comprar o vender, salvo el que tenía la marca, o el
 nombre de la bestia, o el número de su nombre.
 
 Apocalipsis 13 Versículo 18: "Que tenga la comprensión del número

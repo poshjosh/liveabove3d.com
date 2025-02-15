@@ -51,7 +51,7 @@ Facebook: www.facebook.com/profile/100092339087423
 
 #viral #foryou #liveBove3d #god #Jesus #ChristianApologetics #LoveOfGOD # # # FaithAnders #truthinChristianity #scienceandfaith #ChristianityExplained #believeInjesus #ReasonSforFaith #EvidenceForGod #understandingChristianity #FaITHVSSCience #SeEkingTruth #LogicandBelief #Christianity101 #blessbess #HOPE #Inspiration #BeyondThePhysical
 
-@live.ABOVE.3D @live_above_3d @live-love-3d @samshamoun @DailyDoseOfWisdom @Empathetic_Mindfhy @spacerewind @technoplusmedia @cosmoknowledge @themessageChannel1 @curiossp @veritasium @kapchatfield.07 @ken.arrington @tedtoks ~~ Biblia Lectura
+@live.ABOVE.3D @live_above_3d @live-love-3d @samshamoun @DailyDoseOfWisdom @Empathetic_Mindfhy @spacerewind @technoplusmedia @cosmoknowledge @themessageChannel1 @curiossp @veritasium @kapchatfield.07 @ken.arrington @tedtoks  Biblia Lectura
 
 3 Ahora la serpiente era más sutil que cualquier bestia del campo que el Señor Dios había hecho. Y él dijo a la mujer, sí, ¿ha dicho que Dios no comerás de todos los árboles del jardín?
 2 Y la mujer le dijo a la serpiente: Podemos comer del fruto de los árboles del jardín:

@@ -37,7 +37,7 @@ Shalom.
 
 #PowerOfLove #Intercession #FAITH #BELEVE #CHRISTIAN #LOVE #JESUS ​​#CHRIST
 
-#VIRAL EasonsforFaith #EvidenceForGod #EntenerStandingChristianity #FaITHVSScience #SeKingTruth #LogicandBelief #Christianity101 #QuestioningAtheism #DebUnkingMyths #GodandScience #DosscoveringFaith #ChristianLiving #BLESSED #HOPE @Startalk @ samshamoun @DailyDoseOfWisdom @Empathetic_Mindfhy @spacerewind @techNoPlusmedia @Cosmoknowledge @themessageChannel1 @curiositysp @veritasium @kapchatfield.07 @ken.arrington @teTtoks @the.anonymous.pophet @OffThekirb ~~ ~ ~ ~~ ~~ ~ ~~ ~ ~ ~ ~ ~ ~ ~ ~ ~ ~ ~ ~ ~ ~ ~ ~ ~ ~ ~ ~ ~ ~ ~ ~ ~ ~~ ~~ Génesis 20: 1-19, 21: 1-2
+#VIRAL EasonsforFaith #EvidenceForGod #EntenerStandingChristianity #FaITHVSScience #SeKingTruth #LogicandBelief #Christianity101 #QuestioningAtheism #DebUnkingMyths #GodandScience #DosscoveringFaith #ChristianLiving #BLESSED #HOPE @Startalk @ samshamoun @DailyDoseOfWisdom @Empathetic_Mindfhy @spacerewind @techNoPlusmedia @Cosmoknowledge @themessageChannel1 @curiositysp @veritasium @kapchatfield.07 @ken.arrington @teTtoks @the.anonymous.pophet @OffThekirb                                   Génesis 20: 1-19, 21: 1-2
 
 Job 42: 102
 

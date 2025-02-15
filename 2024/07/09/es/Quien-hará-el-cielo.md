@@ -60,7 +60,7 @@ Facebook: www.facebook.com/profile/100092339087423
 
 #Viral #foryou #liveBove3d #god #Jesus #Christianapologics # # LoveOfGod #FaITHANDRASS #TRUTHINCHRISTIANITY #ScIENCEEnDFAITH #ChristianityExplained #believeInjesus #ReasonSforFaith #EvidenceForGod #underSnandingChristianity #FaITHVSSCience #SeEkTruth #LogicandBeLief #Christianity101 #Questionings Christianliving #blessed #Hope #Inspiration #BeyondThePhysical
 
-@live.ABOVE .3d @live_above_3d @live-love-3d @samshamoun @DailyDoseOfWisdom @Empathetic_Mindfhy @spacerewind @technoplusmedia @cosmoknowledge @themessageChannel1 @curiossp @veritasium @kapchatfield Artalk ~~ ~ Versos bíblicos
+@live.ABOVE .3d @live_above_3d @live-love-3d @samshamoun @DailyDoseOfWisdom @Empathetic_Mindfhy @spacerewind @technoplusmedia @cosmoknowledge @themessageChannel1 @curiossp @veritasium @kapchatfield Artalk   Versos bíblicos
 
 
 “Tenga cuidado de no practicar su justicia frente a los demás para ser visto por ellos. Si lo haces, no tendrás recompensa de tu Padre en el cielo.

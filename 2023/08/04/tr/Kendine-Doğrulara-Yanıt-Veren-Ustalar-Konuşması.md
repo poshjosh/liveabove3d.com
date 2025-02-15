@@ -96,7 +96,7 @@ Herkes günah işlediğinden ve sürekli olarak Tanrı'nın ihtişamından düş
 Romalılar 3:23 (amp)
 
 ve O'nda bulunabilir \ [inanmak ve ona güvenmek \], \ [\] için itaat ettiğim
-doğruluğuna sahip değil \ [~] ~~ hukuk*ve*ritüelleri, ama \ [sahip olmak \] Mesih'e imanla gelen \ [gerçek doğruluk \]
+doğruluğuna sahip değil \ []  hukuk*ve*ritüelleri, ama \ [sahip olmak \] Mesih'e imanla gelen \ [gerçek doğruluk \]
 
 ,
 

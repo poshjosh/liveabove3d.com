@@ -23,7 +23,7 @@ Un nuovo convertito mentre non è stata concessa la sua petizione. Qual è allor
 per le preghiere risposte?
 
 Beh, almeno sappiamo che le preghiere risposte non si basano su quanto siamo santi
-(pensiamo). Demoni e non credenti non sono santi o giusti, eppure ~~ le loro preghiere hanno avuto risposta. Per quanto riguarda il nuovo convertito, la sua preghiera non era
+(pensiamo). Demoni e non credenti non sono santi o giusti, eppure  le loro preghiere hanno avuto risposta. Per quanto riguarda il nuovo convertito, la sua preghiera non era
 
 rispose perché Gesù aveva qualcosa di meglio per lui.
 Tuttavia, sei qui perché vuoi capire perché alcune delle tue preghiere
@@ -334,7 +334,7 @@ Nella quarta settimana, l'accusatore si è trasferito di nuovo. Questa volta c'�
 
 nel luogo di lavoro della donna, stress da sua suocera e
 suo marito e suo figlio. Era facilmente arrabbiata, solo quella settimana. Aveva bisogno di
-sentire la parola di sicurezza di Dio. La chiesa era il posto dove stare. Tuttavia, nella chiesa ~~ ~ è stato chiesto loro di pregare per gli altri. Si sedette lì cercando di pregare,
+sentire la parola di sicurezza di Dio. La chiesa era il posto dove stare. Tuttavia, nella chiesa   è stato chiesto loro di pregare per gli altri. Si sedette lì cercando di pregare,
 mentre la sua mente vagava libera. Quindi è stata fatta una chiamata per i membri per dare
 per l'acquisto di una nuova auto per il pastore. La sua voce interiore ha suggerito che
 Dà la sua macchina, dopo tutto si aspettava una Lamborghini rossa, ma

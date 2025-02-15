@@ -32,7 +32,7 @@ Yine de hiç kimse bunun için İbrahim'i öldürmeye çalışmadı.
 
 Joseph ve İbrahim arasındaki fark, Joseph’in sözü
 
-~~ ~~ Tanrı'nın kardeşlerini reddettiği anlamına geliyordu.
+  Tanrı'nın kardeşlerini reddettiği anlamına geliyordu.
 
 Joseph 12 oğlunun 11'inde olduğundan, rüya Tanrı'nın Joseph'i seçmesi için 10 oğlu reddettiği anlamına geliyordu.
 Bu reddetme, Joseph’in kardeşlerini düşündükleri noktaya musallat etti:
@@ -121,7 +121,7 @@ Güneş ve ay ve on bir yıldız bana saygı duydu.
 
 ** <pup> 10 </up> ** Ve bunu babasına ve kardeşlerine söyledi: ve
 
-Babası onu azarladı ve ona dedi ki, bu rüya nedir ~~ ~ Hayal etti? Ben ve annen ve kardeşleriniz gerçekten de kendimize düşmeye geliyor mu?
+Babası onu azarladı ve ona dedi ki, bu rüya nedir   Hayal etti? Ben ve annen ve kardeşleriniz gerçekten de kendimize düşmeye geliyor mu?
 
 ** <pup> 11 </up> ** ve kardeşleri onu kıskandı; Fakat babası
 
@@ -135,7 +135,7 @@ Genesis 37: 5-11
 COMETH.
 ** <pup> 20 </up> Şimdi gel ve onu öldürelim ** ve onu bir çukura atalım ve diyeceğiz, bazı kötü canavar onu yuttu: ** Ve
 
-Hayallerinden ne olacağını göreceğiz. ~~ Kardeşimizi öldürüyoruz ve kanını gizliyoruz? Çünkü o bizim kardeşimiz ve etimiz. Ve onun kardeşleri içerikti. ~ Abram, ve dedim ki, bu toprağa vereceğim: ve orada
+Hayallerinden ne olacağını göreceğiz.  Kardeşimizi öldürüyoruz ve kanını gizliyoruz? Çünkü o bizim kardeşimiz ve etimiz. Ve onun kardeşleri içerikti.  Abram, ve dedim ki, bu toprağa vereceğim: ve orada
 ONE OLDU
 ona
 

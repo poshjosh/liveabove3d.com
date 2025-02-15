@@ -128,7 +128,7 @@ a la bestia, que tenía la herida junto a una espada, y vivía.
 , que la imagen de la bestia debería hablar, y causar eso como
 muchos como no adoraría la imagen de la bestia debería ser asesinada.
 ** <up> 16 </up> ** Y él hace que todos, tanto pequeños como grandes, ricos y
-pobres, libres y vínculos, reciban una marca en su mano derecha, o en su ~~ ~ frente:
+pobres, libres y vínculos, reciban una marca en su mano derecha, o en su   frente:
 
 ** <up> 17 </up> ** y que ningún hombre podría comprar o vender, salvo el que tenía
 la marca, o el nombre de la bestia, o el número de su nombre .

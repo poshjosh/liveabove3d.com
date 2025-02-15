@@ -12,7 +12,7 @@ per farti odio
 
 Piuttosto prega e chiedi
 
-Dio; ~ Il Signore combatte per te.
+Dio;  Il Signore combatte per te.
 
 Esodo 14:14
 

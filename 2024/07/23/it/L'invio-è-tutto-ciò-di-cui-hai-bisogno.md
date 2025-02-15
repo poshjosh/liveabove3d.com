@@ -39,7 +39,7 @@ L'invio (non l'attenzione) è tutto ciò di cui hai bisogno.
 
 #viral #foryou #liveabove3d #jesus #christianapologetics #LoveOVEFGOD #FaitHandReason #TuthInCiThitHaTHITHITHITHITHITHITHITHITHITHITHITHITHITHITHITHITHITHITHITHITHITHITHITHITHITHE #ChristianityExplained #BelieveInJesus #ReasonsForFaith #EvidenceForGod #UnderstandingChristianity #FaithVsScience #SeekingTruth #LogicAndBelief #Christianity101 #QuestioningAtheism #DebunkingMyths #GodAndScience #DiscoveringFaith #christianliving #blessed #hope #inspiration #BeyondThePhysical
 
-@live.above.3d @live_above_3d @live- sopra il 3D @samshamoun @dailydoseofwisdom @empatetic_mindness @spacerewind @technoplusmediate @cosmoknowledge @tethessagechannel1 @curiositysp @veritaSium @kapchatfield.07 @ken.arrington @tedtoks @the.anonymous @offtHeff @offthark ~~ ~~ : www.liveabove3d.com
+@live.above.3d @live_above_3d @live- sopra il 3D @samshamoun @dailydoseofwisdom @empatetic_mindness @spacerewind @technoplusmediate @cosmoknowledge @tethessagechannel1 @curiositysp @veritaSium @kapchatfield.07 @ken.arrington @tedtoks @the.anonymous @offtHeff @offthark   : www.liveabove3d.com
 
 
 youtube: www.youtube.com/@live.above.3d

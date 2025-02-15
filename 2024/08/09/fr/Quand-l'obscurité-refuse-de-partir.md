@@ -41,7 +41,7 @@ Shalom.
 
 #PowerOfLove #InterCession #faith #Believe #Christian #Love #Jesus #Christ
 
-#Viral #Foryou # liveAbove3d #god #yhwh #yahweh #ChristianapoGetic #ReasonsForfaith #Evidenceforgod #Understandingchristianity #faithvsscience #seekingtruth #logicandbellief # christianity101 #questioningAtheism #Debunkingmyths #godandise 3d @startalk @ samshamoun @dailydoseofwisdom @empathetic_mindulness @spacerewind @technoplusmedia @cosmoknowledge @ theMessageChannel1 @curiositysp @veritasium @ kapchatfield.07 @ ken.arrington @tedtoks @ the.anonymous @offthekirb ~~ir
+#Viral #Foryou # liveAbove3d #god #yhwh #yahweh #ChristianapoGetic #ReasonsForfaith #Evidenceforgod #Understandingchristianity #faithvsscience #seekingtruth #logicandbellief # christianity101 #questioningAtheism #Debunkingmyths #godandise 3d @startalk @ samshamoun @dailydoseofwisdom @empathetic_mindulness @spacerewind @technoplusmedia @cosmoknowledge @ theMessageChannel1 @curiositysp @veritasium @ kapchatfield.07 @ ken.arrington @tedtoks @ the.anonymous @offthekirb ir
 
 YouTube: www.youtube.com/@live.above.3d
 
@@ -56,7 +56,7 @@ Instagram: www.instagram.com/live.above.3d
 
 Facebook: www.facebook.com/profile/100092339087423
 
-Bible Versets ~ ~~ Genèse 20: 1-19, 21: 1-2
+Bible Versets   Genèse 20: 1-19, 21: 1-2
 
 Job 42: 10NESIS 20: 1-19, 21: 1-2
 

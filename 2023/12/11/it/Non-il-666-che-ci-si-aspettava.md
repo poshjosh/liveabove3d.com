@@ -131,7 +131,7 @@ alla bestia, che aveva la ferita da una spada e viveva.
 Come non adorerebbe l'immagine della bestia dovrebbe essere uccisa.
 
 ** <up> 16 </up> ** E causa a tutti, sia piccoli che grandi, ricchi e
-poveri, liberi e legami, per ricevere un segno nella mano destra o nella loro ~~ ~ fronte:
+poveri, liberi e legami, per ricevere un segno nella mano destra o nella loro   fronte:
 ** <up> 17 </up> ** E che nessun uomo potesse comprare o vendere, salvo colui che aveva
 
 il segno, o il nome della bestia, o il numero del suo nome .

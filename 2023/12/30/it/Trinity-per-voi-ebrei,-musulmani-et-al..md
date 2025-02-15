@@ -115,7 +115,7 @@ uguali.
 Sono uguali perché sono letteralmente lo stesso materiale.
 Ognuno sperimenta anche tutto ciò che le altre esperienze.
 
-Se avessi detto qualcosa a Omni-Present Tom, Omni-Present Jerry avrebbe sentito anche ~~.
+Se avessi detto qualcosa a Omni-Present Tom, Omni-Present Jerry avrebbe sentito anche .
 
 Se avessi visto Tom onni-presente sulla strada per Costco, avresti visto anche
 
@@ -253,7 +253,7 @@ e la parola era Dio. **
 
 <up> 2 </up> Lo stesso era all'inizio con Dio.
 
-** <up> 3 </up> Tutte le cose sono state fatte da lui **; E senza di lui non era ~~ ~ qualsiasi cosa fatta.
+** <up> 3 </up> Tutte le cose sono state fatte da lui **; E senza di lui non era   qualsiasi cosa fatta.
 Giovanni 1: 1-3
 
 È lo Spirito che si fa veloce; La carne non profila nulla: ** Le parole

@@ -100,6 +100,6 @@ Romans 5:19
 
 #Trend #RiskyDecisions #STREETSMARTS #Whichreligion #answers #Christianity #judaism #islam #athéisme
 
-~~ #vial #foryou # liveAbove3d #god #JeSusus #ChristianapoGetics #LoveOfgod #faithandReason #TruthInChristianity #ScienceAndfaith #ChristianityExplay #GodAndScience #DiscoveringFaith #ChristianLiving #BLESSED #HOPE #inspiration #BeyondThephysical
+ #vial #foryou # liveAbove3d #god #JeSusus #ChristianapoGetics #LoveOfgod #faithandReason #TruthInChristianity #ScienceAndfaith #ChristianityExplay #GodAndScience #DiscoveringFaith #ChristianLiving #BLESSED #HOPE #inspiration #BeyondThephysical
 
-~ ~~ #ChristianLiving #BLESSED #HOPE #inspiration #BeyondThephysical
+  #ChristianLiving #BLESSED #HOPE #inspiration #BeyondThephysical

@@ -46,7 +46,7 @@ Lettura consigliata
 
 • https://read.rhaphasodyofrealitàs.org/
 
-• https: //rhaphasodiederrealität.de/lesen ~ ~~
+• https: //rhaphasodiederrealität.de/lesen  
 
 • https://liveabove3d.com/2024/07/12/en/what-is-a-son-of-god/
 

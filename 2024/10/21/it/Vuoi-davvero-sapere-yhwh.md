@@ -32,7 +32,7 @@ Giovanni 15: 5
 
 Perciò, proprio come attraverso un uomo che è entrato nel mondo e la morte attraverso il peccato, e così la morte si è diffusa a tutti gli uomini, perché tutti hanno peccato
 
-~~ ~ Romani 5:12
+  Romani 5:12
 
 [La saggezza di Dio], che nessuno dei sovrani di questa età ha capito; Perché se l'avessero capito, non avrebbero crocifisso il Signore della Gloria.
 

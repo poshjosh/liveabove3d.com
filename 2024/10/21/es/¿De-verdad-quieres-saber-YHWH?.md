@@ -32,7 +32,7 @@ Juan 15: 5
 
 Por lo tanto, así como a través de un hombre, el pecado entró en el mundo, y la muerte a través del pecado, y así la muerte se extendió a todos los hombres, porque todos pecaron
 
-~~ ~ Romanos 5:12
+  Romanos 5:12
 
 [Sabiduría de Dios], que ninguno de los gobernantes de esta edad ha entendido; Porque si lo hubieran entendido, no habrían crucificado al Señor de la Gloria.
 
@@ -40,7 +40,7 @@ Por lo tanto, así como a través de un hombre, el pecado entró en el mundo, y 
 
 Porque Cristo también sufrió por los pecados de una vez por todos, los justos por los injustos, para que él pueda llevarlo a Dios
 
-~
+
 
 1 Pedro 3 : 18
 

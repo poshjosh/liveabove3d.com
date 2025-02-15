@@ -40,7 +40,7 @@ Es una serie de 4 partes, con cada parte de unos 3 minutos. Aquí vamos.
 Esperamos responder estas preguntas y más.
 
 En 1 Juan 5 Versículo 14, está escrito: "Y esta es la confianza que tenemos en él, que, si preguntamos algo de acuerdo con su voluntad, nos oye
-nosotros:" ~ ~~ Esto significa que Dios no escucha todas las oraciones.
+nosotros:"   Esto significa que Dios no escucha todas las oraciones.
 está bien; ¿Qué significa preguntar de acuerdo con la voluntad de Dios?
 
 Bueno; Según la Biblia, necesitamos:
@@ -374,7 +374,7 @@ Facebook:
 
 [<u> https://www.facebook/ Perfil/100092339087423 </u>] (https://www.facebook.com/profile/100092339087423)
 
-Twitter: @live \ _above \ _3d <u> <https://twitter.com/live_above_3d> ~~ ~ </u>
+Twitter: @live \ _above \ _3d <u> <https://twitter.com/live_above_3d>   </u>
 
 ** Cómo recibir respuestas a sus oraciones. **
 
@@ -403,7 +403,7 @@ Aquí está la idea:
 <colgroup>
 <col style = "ancho: 49%" />
 
-<coly style = "ancho: 50%" /> ~ ~~ </colgroup>
+<coly style = "ancho: 50%" />   </colgroup>
 
 <thead>
 
@@ -434,7 +434,7 @@ Aquí está la idea:
 <tr class = "impar">
 <td> Dios me cura </td>
 <td> Rechazo esta enfermedad porque Jesús no sufrió y murió en
-Vain. </td> ~~ ~ </tr>
+Vain. </td>   </tr>
 </tbody>
 </table>
 ** 2 - Cambiar las cosas **
@@ -565,7 +565,7 @@ También notamos que las respuestas de los cielos son espirituales, y muchos cri
 ** Hoy, expondré la fe y luego daré consejos factibles sobre cómo
 vivir por fe. **
 
-¿Sabes: - que preguntas es la fe requerida para que tu oración sea ~ ~~ escuchó y respondió.
+¿Sabes: - que preguntas es la fe requerida para que tu oración sea   escuchó y respondió.
 Porque realmente te digo, ** Si tienes fe en el tamaño de una semilla de mostaza,
 
 Dirás ** a esta montaña ... Mathew 17:20.

@@ -5,7 +5,7 @@
 *** Komşu: *** (Panikte) Eşyalarınızı atıyorlar
 caddeye!
 
-*** Me: *** (Mesih'in Tutkusunu İzlemek) Onları dışarı attığı aynı eller onları içeri taşıyacaktır. ~~ bunlar.
+*** Me: *** (Mesih'in Tutkusunu İzlemek) Onları dışarı attığı aynı eller onları içeri taşıyacaktır.  bunlar.
 Bu tür tepkiler sonunda bizi hangi kelimelerin kalplerimize girdiğinin bilincindedir.
 
 --- Burada durdu ---

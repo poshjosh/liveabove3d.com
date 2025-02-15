@@ -15,7 +15,7 @@ Twitter: @Live \ _above \ _3d
 Merhaba ve 3D'nin üstünde yaşamaya hoş geldiniz
 
 Bugün, kendi kendine dürüst olup olmadığımızı test edeceğiz. Daha sonra
-~~ ~~ ~~ ~~ ~~ ~~ ~~ ~~ ~ ~ ~ ~ Tanrı'nın doğruluğuna.
+            Tanrı'nın doğruluğuna.
 
 Birçoğu doğruluğumuzun inançlı olduğu konusunda hemfikir.
 

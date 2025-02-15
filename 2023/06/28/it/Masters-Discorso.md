@@ -8,7 +8,7 @@ Street!
 *** ME: *** (guardando la passione del Cristo) Le stesse mani che hanno lanciato
 li porteranno dentro.
 
-All'inizio, è importante che i cristiani rispondano a bugie come ~ ~~ questi.
+All'inizio, è importante che i cristiani rispondano a bugie come   questi.
 Tali risposte alla fine ci rendono consapevole di quali parole entrano nei nostri
 
 cuori.
@@ -16,7 +16,7 @@ cuori.
 
 ** Dopo aver visto Lori, un cristiano, piangere nella disperazione a causa della dannosa notizia del suo dottore. **
 
-*** Ecco cosa ho detto Lori: *** "Coloro che ti hanno visto piangere oggi, non ci vediamo ~~ ci vediamo rallegrarti, dopo che il Signore ti ha guarito".
+*** Ecco cosa ho detto Lori: *** "Coloro che ti hanno visto piangere oggi, non ci vediamo  ci vediamo rallegrarti, dopo che il Signore ti ha guarito".
 ** Durante la ricezione dei risultati del test da un medico **
 
 *** Doctor: *** Hai 9 mesi per vivere.

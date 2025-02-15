@@ -127,7 +127,7 @@ de ces miracles qu'il avait le pouvoir de faire aux yeux de la bête
 
 beaucoup comme il ne serait pas adorer l'image de la bête devrait être tuée.
 ** <Up> 16 </sup> ** Et il fait que tous, à la fois petits et grands, riches et
-pauvres, libres et liés, reçoivent une marque dans leur main droite, ou dans leur ~~ ~ fronts:
+pauvres, libres et liés, reçoivent une marque dans leur main droite, ou dans leur   fronts:
 ** <Up> 17 </sup> ** Et qu'aucun homme ne peut acheter ou vendre, sauver celui qui avait
 
 la marque, ou le nom de la bête, ou le numéro de son nom .

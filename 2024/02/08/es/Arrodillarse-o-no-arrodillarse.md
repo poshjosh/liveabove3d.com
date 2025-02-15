@@ -198,11 +198,11 @@ Tiktok:
 
 [<U> https://www.tiktok.com/@live.above.3d </u>] (https://www.tiktok.com/@live.above.3d)
 
-~ ~~ Twitter: @Live \ _ABOVE \ _3D
+  Twitter: @Live \ _ABOVE \ _3D
 
 [<U> https://twitter.com/live\_above\_3d </u>] (https://twitter.com/live_above_3d)
 
-~ ~~ Reddit: Live-Above-3D <https://www.reddit.com/user/live-above-3d>
+  Reddit: Live-Above-3D <https://www.reddit.com/user/live-above-3d>
 
 Instagram: <https://www.instagram.com/live.above .3d>
 
@@ -212,7 +212,7 @@ Facebook:
 
 ** <u> versos bíblicos </u> **
 
-** <pp> 8 </up> ** Una vez más, el diablo lo lleva a un alto superior ~ ~~ montaña, y le muestra todos los reinos del mundo, y la gloria
+** <pp> 8 </up> ** Una vez más, el diablo lo lleva a un alto superior   montaña, y le muestra todos los reinos del mundo, y la gloria
 
 de ellos;
 

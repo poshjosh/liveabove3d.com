@@ -8,7 +8,7 @@
 
 #trending #christiananswers #yahweh #christ #vine #jesus #christian #love #faith bod
 
-~~
+
 
 Біблія (застаріла стандартна Біблія)
 

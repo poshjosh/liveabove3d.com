@@ -35,7 +35,7 @@ Bu soruları ve daha fazlasını cevaplamayı umuyoruz.
 
 1 Yuhanna 5 ayet 14'te şöyle yazılmıştır: “Ve bu onun içinde sahip olduğumuz güvendir, eğer onun iradesine göre herhangi bir şey sorarsak,
 
-bizi duyar:” ~ ~~ Bu, Tanrı'nın her duayı duymadığı anlamına gelir.
+bizi duyar:”   Bu, Tanrı'nın her duayı duymadığı anlamına gelir.
 
 Tamam; Tanrı'nın iradesine göre sormak ne anlama geliyor?
 
@@ -210,7 +210,7 @@ Anlamlı ilişkilere sahip olduğunuz kişilerle daha fazla zaman geçirme eğil
 New York'ta yaşıyor ve çalışıyorsanız, ebeveynleriniz New Jersey'de yaşarken,
 ayda bir veya daha fazla kez ziyaret edebilirsiniz.
 
-Bununla birlikte, bu ~~ ~ ~ ~ ~ ~ ~ ~ ~ ~ ~ ~ ~ ~ ~ ~ ~ devletlerin her birinde bir restoranınız varsa, çoğu gün New Jersey'i ziyaret ederken bulabilirsiniz. Mesele şu ki: Geleceğinizi sürekli olarak
+Bununla birlikte, bu                  devletlerin her birinde bir restoranınız varsa, çoğu gün New Jersey'i ziyaret ederken bulabilirsiniz. Mesele şu ki: Geleceğinizi sürekli olarak
 İlerleme için Ruh Diyarı ile etkileşime girmeniz gerekecek şekilde planlayın.
 
 Bunu nasıl yapacağınızdan emin değilseniz, bana bir e -posta gönderin,
@@ -342,7 +342,7 @@ Facebook:
 
 [<U> https://www.facebook.com/.com/.com/ Profil/100092339087423 </u>] (https://www.facebook.com/profile/10009239087423)
 
-Twitter: @Live \ _above \ _3d ~ </u>
+Twitter: @Live \ _above \ _3d  </u>
 ** Dualarınıza cevap nasıl alınır. **
 
 1. Doğru dua edin.
@@ -370,7 +370,7 @@ koca malzemesi.
 
 <col style = "genişlik:%49" />
 
-<col style = "genişlik:%50" /> ~ ~~ </ Colgroup>
+<col style = "genişlik:%50" />   </ Colgroup>
 
 <Thead>
 
@@ -403,7 +403,7 @@ koca malzemesi.
 <TD> Tanrı beni iyileştirir </td>
 <td> Bu hastalığı reddediyorum çünkü İsa
 
-boşuna acı çekmedi ve ölmedi. </td> ~~ ~ </tr>
+boşuna acı çekmedi ve ölmedi. </td>   </tr>
 
 </tbody>
 
@@ -430,7 +430,7 @@ Dua etmek, Tanrı'dan hayatınızın değişmesi gereken bu alanları tanımlama
 ** 3 - Tanrı’nın işi yapıyor.
 New York'ta yaşıyor ve çalışıyorsanız, ebeveynleriniz New Jersey'de yaşarken,
 ayda bir veya daha fazla kez ziyaret edebilirsiniz.
-Bununla birlikte, bu ~~ ~ ~ ~ ~ ~ ~ ~ ~ ~ ~ ~ ~ ~ ~ ~ ~ devletlerin her birinde bir restoranınız varsa, çoğu gün New Jersey'i ziyaret ederken bulabilirsiniz. Mesele şu ki: Geleceğinizi sürekli olarak
+Bununla birlikte, bu                  devletlerin her birinde bir restoranınız varsa, çoğu gün New Jersey'i ziyaret ederken bulabilirsiniz. Mesele şu ki: Geleceğinizi sürekli olarak
 İlerleme için Ruh Diyarı ile etkileşime girmeniz gerekecek şekilde planlayın.
 Bunu başarmanın en iyi yolu Tanrı’nın işini yapmaktır.
 Kendinizi Tanrı’nın işini yapmak istemiyorsanız, bunun nedeni
@@ -516,7 +516,7 @@ Alma istemekten adımları kaydettik.
 
 Ayrıca göksel cevapların manevi olduğunu ve birçok Hıristiyanın bu tür cevapları fiziksel alana nasıl gerçekleştireceğini bilmiyor.
 
-** Bugün, inancı açığa çıkaracağım ve daha sonra inançla nasıl yaşayacağınız konusunda işlenebilir ipuçları vereceğim. ~~ duydu ve cevap verdi.
+** Bugün, inancı açığa çıkaracağım ve daha sonra inançla nasıl yaşayacağınız konusunda işlenebilir ipuçları vereceğim.  duydu ve cevap verdi.
 
 Gerçekten size söylüyorum, ** Bir hardal tohumunun büyüklüğüne inancınız varsa,
 
@@ -604,7 +604,7 @@ Kanıtlar artık mahkemede kabul edilemez.
 saldırıya, şeytanın yalanlarına dayanan inancımız nasıl olur?
 Basit cevap, ruhtaki varlığımızı artırmamız gerektiğidir
 
-~~ ~~ ~~ ~~.
+   .
 ** İnanç Manevi Madde - İbraniler 11: 1 **
 
 İnancın ne olduğunu hatırlarsanız, bunun neden anahtar olduğunu göreceksiniz.
@@ -689,7 +689,7 @@ Bu bir şaka gibi görünüyor. Demek istediğim, Cennetimiz Beck ve Call? Yanl�
 İsa'nın Babalığı hakkında
 
 dualara verilen cevaplarla ilgili söyledikleri.
-10 almayı soran herkes için; Buluyor; Ve ona ~~ ~ ~ ~ ~ ~ ~ kapıyı açacak. 11 Sizin aranızda hangi baba, eğer oğlu
+10 almayı soran herkes için; Buluyor; Ve ona        kapıyı açacak. 11 Sizin aranızda hangi baba, eğer oğlu
 bir balık isterse, ona bir yılan verecek? 12or
 
 bir yumurta isterse, ona bir akrep verecek mi?
@@ -699,7 +699,7 @@ Luka 11: 10-12
 ona iyi şeyler verecek !
 
 Matthew 7:11
-Tekrar söylüyorum, cennet dualarımıza cevap vermek için düzenleniyor. Sorduğumuzda ve Tanrı ~~ ~~ cevaplar almamız gerekir. Ancak, bu sonraki gerçek genellikle bazı Hıristiyanların cevap almasını önler.
+Tekrar söylüyorum, cennet dualarımıza cevap vermek için düzenleniyor. Sorduğumuzda ve Tanrı   cevaplar almamız gerekir. Ancak, bu sonraki gerçek genellikle bazı Hıristiyanların cevap almasını önler.
 
 \ [belki bir sonraki bölümleri doğruluk bölümüne taşıyın \]
 
@@ -736,7 +736,7 @@ bunu yapmaya çalışırsanız aptal olmanızdır.
 Sağlık veya tanıtım gibi, Hıristiyanların genellikle soracak inancına sahip olan başka şeyler de vardır. Bu gibi durumlarda, cevap hemen
 . Ancak, cevabı almak için genellikle sabır gerektirir.
 Sabır, birçok Hıristiyanın yanlış anlaşıldığı kısımdır.
-bu serinin 3. Bölümünde, ~~ ~ zihninizi değiştirecek ve dualarınızı cevaplamak için size bir avantaj sağlayacak bir şekilde sabrı parçalayacağız.
+bu serinin 3. Bölümünde,   zihninizi değiştirecek ve dualarınızı cevaplamak için size bir avantaj sağlayacak bir şekilde sabrı parçalayacağız.
 Carnal Hıristiyanlar karakteri değil, istekleri, yani
 sorun.
 
@@ -748,7 +748,7 @@ Görüyorsunuz, doğru bir insan haksız bir dua dua edebilir, tıpkı
 haksız bir insanın doğru bir dua dua edebileceği gibi.
 Dualarınızın cevaplanmadığını söyleme çünkü günahkarsınız, daha ziyade, cevaplanmadıklarını bilin çünkü ruhu anlamıyorsunuz
 
-~~ ~~.
+ .
 Ayrıca, önceki video başlığımızda şöyle gösterdik: “Cennet
 
 dualarımıza, tanrım nasıl davranıyor”, eğer dünyevi düşünürseniz,
@@ -814,13 +814,13 @@ Tanrı’nın zevki onun danışmanıyla çelişmez. Aslında, İşaya'da 46
 Ayet 10 Tanrı diyor: Danışmanım duracak ve tüm zevkimi yapacağım.
 Peki, karışıklık nerede?
 
-Tanrı istediği gibi yapsa da, hala onun ~~ ~ ~ ~ ~ ~ avukatıyla uyumludur. Bu, Tanrı’nın eylemlerinin bizim için bir gizem olması durumunda,
+Tanrı istediği gibi yapsa da, hala onun       avukatıyla uyumludur. Bu, Tanrı’nın eylemlerinin bizim için bir gizem olması durumunda,
 
 , çünkü onun danışmanını/bilgeliğini/iradesini bilmiyoruz.
 Hiç bir şey hakkında kafanız karışmışsa, kasıtlı olarak cennet değildir
 gizemli olmak. Aksine, bu sizin açınızdan bilgi eksikliğidir. Bu bilgi eksikliğine, James 1 ayet 5'te yazılmıştır: eğer herhangi biriniz bilgelikten yoksunsa, Tanrı'ya sormasına izin verin, tüm insanlara liberal olarak giren ve
 
-~~ ~ ~ ~ ~ Ve ona verilecek.
+     Ve ona verilecek.
 
 oldukça açıktır:
 

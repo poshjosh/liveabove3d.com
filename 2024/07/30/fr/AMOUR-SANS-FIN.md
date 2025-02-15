@@ -13,7 +13,7 @@ paroles de: https://loveworldlyrics.com/no-end-by-eli-j -and-loveworld-singers-m
 
 #viral #foryou # liveAbove3d #god #jesus #christianapotetics #loveofove3d #god #jesus Foindreason #truthinchristianity #scienceNandfaith #ChristianityExplayé #BeLeeveInjesus #ReasonsForfaith #Evidenceforgod #UnderstandingChristianity #faithVsSciencement #seekingtruth #LogicMelief #goDandScienceScience #DiscEmSism #DeBunkingMyt Ianliving #BLed #Hope #inspiration #BeyondThephysical
 
-@ live.above.3d @ live_above_3d @ live-above-3d @samshamoun @dailydoseofwisdom @empathetic_mindfury @spacerewind @Technoplusmedia @cosmoknowledge ~~ Apprenez Plus
+@ live.above.3d @ live_above_3d @ live-above-3d @samshamoun @dailydoseofwisdom @empathetic_mindfury @spacerewind @Technoplusmedia @cosmoknowledge  Apprenez Plus
 
 
 Site Web: www.liveabove3d.com

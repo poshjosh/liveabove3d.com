@@ -98,7 +98,7 @@ Dal momento che tutti hanno peccato e non sono continuamente all'altezza della g
 Romani 3:23 (amp)
 e possono essere trovati in lui \ [credere e fare affidamento su di lui \], non avendo alcuna giustizia
 
-della mia stessa derivata da \ [la mia obbedienza a \] il ~ ~~ legge*e*i suoi rituali, ma \ [possiede \] che \ [genuina giustizia \]
+della mia stessa derivata da \ [la mia obbedienza a \] il   legge*e*i suoi rituali, ma \ [possiede \] che \ [genuina giustizia \]
 
 che arriva attraverso la fede in Cristo, la giustizia che proviene da
 

@@ -84,7 +84,7 @@ Shalom.
 
 Versos bíblicos
 
-~ ~ ~~ lucha contra la buena lucha de la fe. Aprovecha la vida eterna a la que te llamaron, e hiciste la buena confesión en presencia de muchos testigos. - 1 Timoteo 6:12
+   lucha contra la buena lucha de la fe. Aprovecha la vida eterna a la que te llamaron, e hiciste la buena confesión en presencia de muchos testigos. - 1 Timoteo 6:12
 
 Porque las armas de nuestra guerra no son de la carne, sino divinamente poderosas para derribar las fortalezas, mientras derribamos las especulaciones y cada cosa elevada levantada contra el conocimiento de Dios y tomar todo pensamiento cautivo a la obediencia de Cristo. -2 Corintios 10: 4-5
 
@@ -96,7 +96,7 @@ Recomendado
 
 • Inglés: https://liveBove3d.com/en/welcome/
 
-• Deutsch: https://liveabove3d.com/de/herzlich-willkommen/ ~ ~~
+• Deutsch: https://liveabove3d.com/de/herzlich-willkommen/  
 
 Aprenda más
 
@@ -104,7 +104,7 @@ Aprenda más
 
 • YouTube: www.youtube.com/@live.above.3d
 
-~~ ~ • Tiktok: www.tiktok.com/@live.above.3d
+  • Tiktok: www.tiktok.com/@live.above.3d
 
 • x: www.x.com/live_above_3d
 
@@ -112,6 +112,6 @@ Aprenda más
 
 • Instagram: www.instagram.com/live.above.3d
 
-• Facebook: www.facebook.com/profile/100092339087423om/live.above.3d/ ~ ~ ~~
+• Facebook: www.facebook.com/profile/100092339087423om/live.above.3d/   
 
 • Facebook: www.facebook.com/profile/100092339087423

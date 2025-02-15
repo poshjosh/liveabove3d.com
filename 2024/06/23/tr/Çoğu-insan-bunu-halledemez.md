@@ -59,7 +59,7 @@ Web sitesi: www.liveabove3d.com
 
 YouTube: www.youtube.com/@live.above.3d
 
-~ Tiktok: www.tiktok.com/@live.above.3d
+ Tiktok: www.tiktok.com/@live.above.3d
 
 Twitter: www.twitter.com/live_above_3d
 

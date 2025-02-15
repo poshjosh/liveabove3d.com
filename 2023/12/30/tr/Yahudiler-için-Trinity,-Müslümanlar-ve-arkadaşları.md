@@ -16,7 +16,7 @@ Trinity, çoğu Hıristiyan kilisesi tarafından öğretilen bir inançtır, bu 
 3 kişide nasıl var olabilir?
 
 Tahmin edebileceğiniz gibi, erken kilise bu doktrin üzerinde mücadele etti.
-Sonunda Üçlü'e olan inancını iki kısa ~~ ~ ~ ifadesine indirdiler. Tanrı'nın özünde bir ama üç kişi olduğu sonucuna vardılar.
+Sonunda Üçlü'e olan inancını iki kısa    ifadesine indirdiler. Tanrı'nın özünde bir ama üç kişi olduğu sonucuna vardılar.
 
 Tanrı'nın özünde, ancak üç şahsen olması mümkün mü?
 

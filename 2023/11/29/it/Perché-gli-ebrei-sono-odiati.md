@@ -147,7 +147,7 @@ eppure più per i suoi sogni e per le sue parole.
 il sole e la luna e le undici stelle mi hanno obbedito.
 ** <up> 10 </up> ** E lo disse a suo padre, e ai suoi fratelli: e
 
-suo padre lo rimproverò e gli disse: che cosa è questo sogno che tu ~~ ~ ha sognato? Io e tua madre e i tuoi fratelli vengano davvero inchinati
+suo padre lo rimproverò e gli disse: che cosa è questo sogno che tu   ha sognato? Io e tua madre e i tuoi fratelli vengano davvero inchinati
 noi stessi verso la terra?
 ** <up> 11 </up> ** E i suoi fratelli lo invidiarono; Ma suo padre ha osservato
 il detto.
@@ -165,7 +165,7 @@ in qualche fossa, e diremo, qualche bestia malvagia lo ha divorato: ** e
 
 Vedremo cosa diventerà dei suoi sogni. **
 Genesi 37: 18-20
-** <P> 26 </up> E Giuda ha detto ai suoi fratelli, che profitto è se ~ ~~ Ucciamo nostro fratello e nascondiamo il suo sangue? **
+** <P> 26 </up> E Giuda ha detto ai suoi fratelli, che profitto è se   Ucciamo nostro fratello e nascondiamo il suo sangue? **
 
 ** <sup> 27 </up> vieni e lasciamolo venderlo alle ishmeelite e lasciamo che
 
@@ -173,7 +173,7 @@ non la nostra mano sia su di lui; Perché è nostro fratello e la nostra carne. 
 erano contenti. **
 
 Genesi 37: 26-27
-<up> 7 </up> e <span class = "Smallcaps"> Lord </span> è apparso in ~~ ~ Abram, e disse, al tuo seme darò questa terra: e lì costruì
+<up> 7 </up> e <span class = "Smallcaps"> Lord </span> è apparso in   Abram, e disse, al tuo seme darò questa terra: e lì costruì
 egli un altare fino alla <Span class = "Smallcaps"> Lord </span>, che gli apparve
 
 .

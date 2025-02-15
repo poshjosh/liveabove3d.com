@@ -64,7 +64,7 @@ REDDIT: Live -bove-3d www www .reddit.com/user/live-wove-3d
 
 Instagram: www.instagram.com/live.above.3d
 
-Facebook: /www.facebook.com/profile/100092339087423 ~ ~~
+Facebook: /www.facebook.com/profile/100092339087423  
 
 #viral #Foryou #LivaABove3d #god #god #christianapologetics #LoveOfgod #FaithandReason #truthinchristianity #sciencdfaith #christianityxplained #Belieinjundingsussforaith #faith #faith #faithbik İnanç #Christianity101 #Questioningatheism #debunkingMyths #godadscience # DiscoveringFaith #christianliving #blessed #hope #inspiration #beyondThePhysical
 

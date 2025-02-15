@@ -64,7 +64,7 @@ reddit: live-love-3d www www www www www www www www www www www www www www www
 
 Instagram: www.instagram.com/live.above.3d
 
-Facebook: /www.facebook.com/profile/100092339087423 ~ ~~
+Facebook: /www.facebook.com/profile/100092339087423  
 
 #viral #foryou #liveBove3d #god #jesus #ChristianApologetics #LoveOfGod #FaITHANDRAS Elief #Christianity101 #Questioningatheism #debunkingmyths #godandscience # DiscoveringFaith #ChristianLiving #blessed #Hope #Inspiration #BeyondThePhysical
 

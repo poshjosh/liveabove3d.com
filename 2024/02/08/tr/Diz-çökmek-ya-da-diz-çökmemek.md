@@ -182,13 +182,13 @@ Tiktok:
 
 [<U> https://www.tiktok.com/@live.above.3d </u>] (https://www.tiktok.com/@live.above.3d)
 
-~ ~
+ 
 
-~ ~~ Twitter: @Live \ _above \ _3d
+  Twitter: @Live \ _above \ _3d
 
 [<U> https://twitter.com/live\_above\_3d </u>] (https://twitter.com/live_above_3d)
 
-~ ~ ~ ~ ~~ Reddit: Live-wove-3d <https://www.reddit.com/user/live-wove-3d>
+     Reddit: Live-wove-3d <https://www.reddit.com/user/live-wove-3d>
 
 Instagram: <https://www.instagram.com/live.above .3d>
 
@@ -198,7 +198,7 @@ Facebook:
 
 ** <U> İncil Ayetleri </u> **
 
-** <pup> 8 </up> ** Yine, şeytan onu aşan bir yüksekliğe attı ~ ~~ Dağ ve ona dünyanın tüm krallıklarını ve ihtişamını
+** <pup> 8 </up> ** Yine, şeytan onu aşan bir yüksekliğe attı   Dağ ve ona dünyanın tüm krallıklarını ve ihtişamını
 
 ;
 

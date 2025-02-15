@@ -84,7 +84,7 @@ shalom.
 
 BIBLE VERSES
 
-~ ~~ Combatti la buona lotta della fede. Prendi la vita eterna a cui sei stato chiamato e hai fatto la buona confessione in presenza di molti testimoni. - 1 Timoteo 6:12
+  Combatti la buona lotta della fede. Prendi la vita eterna a cui sei stato chiamato e hai fatto la buona confessione in presenza di molti testimoni. - 1 Timoteo 6:12
 
 Per le armi della nostra guerra non sono di carne, ma divinamente potenti per lo strappo delle roccaforti, mentre abbattiamo le speculazioni e ogni cosa alta si è alzata contro la conoscenza di Dio e porta ogni pensiero prigioniero all'obbedienza di Cristo. -2 Corinthians 10: 4-5
 
@@ -96,7 +96,7 @@ Consigliato
 
 • inglese: https://liveabove3d.com/en/welcome/
 
-• deutsch: https://liveabove3d.com/de/herzlich-wilkommen/ ~ ~~
+• deutsch: https://liveabove3d.com/de/herzlich-wilkommen/  
 
 savi di più
 
@@ -104,7 +104,7 @@ savi di più
 
 • YouTube: www.youtube.com/@live.above.3d
 
-~~ ~ • tiktok: www.tiktok.com/@live.above.3d
+  • tiktok: www.tiktok.com/@live.above.3d
 
 • X: www.x.com/live_above_3d
 
@@ -112,6 +112,6 @@ savi di più
 
 • Instagram: www.instagram.com/live.above.3d
 
-• Facebook: www.facebook.com/profile/10009239087423om/live.above.3d/ ~ ~~
+• Facebook: www.facebook.com/profile/10009239087423om/live.above.3d/  
 
 • Facebook: www.facebook.com/profile/100092339087423

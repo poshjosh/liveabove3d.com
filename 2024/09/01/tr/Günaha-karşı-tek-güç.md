@@ -39,14 +39,14 @@ Shalom.
 
 #temptation #prayer #tears #cries #supplication #jesus #christian #love #faith #yahweh #god
 
-#viral #foryou #LiveAbove3D #god #jesus #ChristianApologetics #LoveOfGod #FaithAndReason #TruthInChristianity #ScienceAndFaith #ChristianityExplained #BelieveInjesus #ReasonForfaith #AvenceForgod #Understandingchristianity #Faithvsscience #Seekingtruth #LogicandBelief #Christianity101 #questionsingthyts #godandscience #hopeingfaith #bristy #bikasyon. Live_above_3d @Live-Awey- 3D @SamShamoun @DailoseOfwisdom @Empatetic_Mindourness @spacerewind @Technoplusmedia @Cosmoknowledge @themessagechannel1 @Curiosysp @themessagechannel1 @curiosys @@starb ~ @starb ~ @starb ~ @starb ~ @starb @starb @starb @starb @starb @starb @starb @starb @starb @starb @starbs @starb @starb @starb @starb @starb @starb @start ~ .liveabove3d.com.
+#viral #foryou #LiveAbove3D #god #jesus #ChristianApologetics #LoveOfGod #FaithAndReason #TruthInChristianity #ScienceAndFaith #ChristianityExplained #BelieveInjesus #ReasonForfaith #AvenceForgod #Understandingchristianity #Faithvsscience #Seekingtruth #LogicandBelief #Christianity101 #questionsingthyts #godandscience #hopeingfaith #bristy #bikasyon. Live_above_3d @Live-Awey- 3D @SamShamoun @DailoseOfwisdom @Empatetic_Mindourness @spacerewind @Technoplusmedia @Cosmoknowledge @themessagechannel1 @Curiosysp @themessagechannel1 @curiosys @@starb  @starb  @starb  @starb  @starb @starb @starb @starb @starb @starb @starb @starb @starb @starb @starbs @starb @starb @starb @starb @starb @starb @start  .liveabove3d.com.
 
 Reddit: www.reddit.com/user/live-wove-3d
 
 
 Instagram: www.instagram.com/live.above.3d
 
-Facebook: www.facebook.com/profile/10009239087423 ~~ ~ İncil ayetleri
+Facebook: www.facebook.com/profile/10009239087423   İncil ayetleri
 
 Matta 26:41
 

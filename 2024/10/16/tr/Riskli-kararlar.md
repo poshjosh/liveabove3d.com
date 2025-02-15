@@ -102,4 +102,4 @@ Romalılar 5:19
 
 #Viral #Foryou #LiveABove3d #god #jesus #Christianapologetics #LoveOfgod #FaithandReason #truthinchristianity #sciencdfaith #christianitysplaingle #believeInjesus #reasonsforfaith #Faithvsscience #sesking #quingtruth #quinghing #quingtruth #quingtruth #quinghgKing Vescience #discoveringfaith #christianLiving #blessed #hope #inspiration #beyondthePhysical
 
-~ ~~ #ChristianLiving #blessed #Hope #Inspiration #BeyondThePhysical
+  #ChristianLiving #blessed #Hope #Inspiration #BeyondThePhysical

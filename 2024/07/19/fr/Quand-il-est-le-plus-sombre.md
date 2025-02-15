@@ -63,7 +63,7 @@ Shalom.
 
 #looktojesus #Jesus #Trials #Believe #Christian #Love #faith #yahweh #god
 
-#Viral #Foryou # liveAbove3d #god #Jesus #ChristianapoGetic #ReasonsForfaith #Evidenceforgod #Understandingchristianity #faithvsscience #seekingtruth #logicandbellief # christianity101 #questioningAtheism #Debunkingmyths #godandise 3d @samshamoun @ DailyDoseOfWisdom @Empathetic_Mindfurfy @spacerewind @technoplusmedia @cosmoknowledge @ theMessageChannel1 @curiositysp @veritasium @ kapchatfield.07 @ ken.arrington @tedtoks @ the.anonymous.prophet @offthekirb @startalk ~~ir
+#Viral #Foryou # liveAbove3d #god #Jesus #ChristianapoGetic #ReasonsForfaith #Evidenceforgod #Understandingchristianity #faithvsscience #seekingtruth #logicandbellief # christianity101 #questioningAtheism #Debunkingmyths #godandise 3d @samshamoun @ DailyDoseOfWisdom @Empathetic_Mindfurfy @spacerewind @technoplusmedia @cosmoknowledge @ theMessageChannel1 @curiositysp @veritasium @ kapchatfield.07 @ ken.arrington @tedtoks @ the.anonymous.prophet @offthekirb @startalk ir
 
 YouTube: www.youtube.com/@live.above.3d
 
@@ -78,7 +78,7 @@ Instagram: www.instagram.com/live.above.3d
 
 Facebook: www.facebook.com/profile/100092339087423
 
-Bible Versets ~ ~~ même le mystère qui a été caché des âges et des générations, mais qui est maintenant manifeste à ses saints:
+Bible Versets   même le mystère qui a été caché des âges et des générations, mais qui est maintenant manifeste à ses saints:
 
 à qui Dieu ferait savoir quelles sont les richesses de la gloire de ce mystère parmi les Gentils; qui est Christ en vous, l'espoir de la gloire:
 

@@ -52,7 +52,7 @@ Capitolo 4 dal versetto 8 a 11.
 
 Quando offerto il mondo da Satana, Gesù ha risposto: “Essere spariti, Satana ! Per questo è scritto
 
-, adorerai il Signore tuo Dio e solo lui servirai ~~ ”.
+, adorerai il Signore tuo Dio e solo lui servirai  ”.
 
 Potresti dire che questo non si applica a te, dal momento che Dio non ti ha promesso
 
@@ -204,17 +204,17 @@ tiktok:
 
 [<u> https://www.tiktok.com/@live.above.3d </u>] (https://www.tiktok.com/@live.above.3d)
 
-~ ~~ Twitter: @live \ _above \ _3d
+  Twitter: @live \ _above \ _3d
 
 [<u> https://twitter.com/live\_above\_3d </u>] (https://twitter.com/live_above_3d)
 
-~ ~~ Reddit: Live-Above-3D <https://www.reddit.com/user/live-above-3d>
+  Reddit: Live-Above-3D <https://www.reddit.com/user/live-above-3d>
 
 Instagram: <https://www.instagram.com/live.above .3d>
 
 Facebook:
 
-[<u> https://www.facebook.com/profile/100092339087423 </u>] (https://www.facebook.com/profile/10009239087423 ? ~~ montagna, e gli mostra tutti i regni del mondo e la gloria
+[<u> https://www.facebook.com/profile/100092339087423 </u>] (https://www.facebook.com/profile/10009239087423 ?  montagna, e gli mostra tutti i regni del mondo e la gloria
 
 di loro;
 

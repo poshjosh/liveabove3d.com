@@ -56,9 +56,9 @@ Yorumlar bölümünde ne düşündüğünüzü bana bildirin.
 
 Shalom.
 
-#looktojesus #Trials #believe #christian #Love #Faith #yahweh #god ~~ #Viral #Foryou #Liveabove3d #god #jesus #christianapologetics #loveofgod #saithandReason #ChiAinity #Chinity #Chinity Onsforfaith #EvidenceForgod #UnderstandingChristianity #Faithvsscience #Seekingtruth #LogicandBelief #Christianity101 #GoDandscience #DiscoveringFaith #GoDandscience #DiscoveringFaith #ChristianLiving #blessical ~~ @Inspiration #beyondthysical #Hope @Inspiration #Bey @samShamoun @ DailyDoseOfwisdom @Empatetic_Mindourness @Spacerewind @Technoplusmedia @Cosmoknowledge @themessagechannel1 @curiosysp @veritasium @kapchatfield.07 @ken.arrington @tedtoks @the.anonymous.prophet @ofoffthekirb @starb @starb @starb @~~ ~ @wfthekirb @startalk
+#looktojesus #Trials #believe #christian #Love #Faith #yahweh #god  #Viral #Foryou #Liveabove3d #god #jesus #christianapologetics #loveofgod #saithandReason #ChiAinity #Chinity #Chinity Onsforfaith #EvidenceForgod #UnderstandingChristianity #Faithvsscience #Seekingtruth #LogicandBelief #Christianity101 #GoDandscience #DiscoveringFaith #GoDandscience #DiscoveringFaith #ChristianLiving #blessical  @Inspiration #beyondthysical #Hope @Inspiration #Bey @samShamoun @ DailyDoseOfwisdom @Empatetic_Mindourness @Spacerewind @Technoplusmedia @Cosmoknowledge @themessagechannel1 @curiosysp @veritasium @kapchatfield.07 @ken.arrington @tedtoks @the.anonymous.prophet @ofoffthekirb @starb @starb @starb @  @wfthekirb @startalk
 
-~~ @wwet @wb3:
+ @wwet @wb3:
 
 
 YouTube: www.youtube.com/@live.above.3d
@@ -74,7 +74,7 @@ Instagram: www.instagram.com/live.above.3d
 
 Facebook: www.facebook.com/profile/100092339087423
 
-İncil Ayetleri ~ ~~ Çağlar ve nesillerden saklanan gizem bile, ama şimdi azizlerine tezahür ettirilir:
+İncil Ayetleri   Çağlar ve nesillerden saklanan gizem bile, ama şimdi azizlerine tezahür ettirilir:
 
 Tanrı'nın Yahudi olmayanlar arasında bu gizemin ihtişamının zenginliklerini bileceğini; İçinde Mesih, Glory Umutu:
 

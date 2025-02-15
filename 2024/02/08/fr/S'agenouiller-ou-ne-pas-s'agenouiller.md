@@ -200,11 +200,11 @@ tiktok:
 
 [<u> https://www.tiktok.com/@live.above.3d </u>] (https://www.tiktok.com/@live.above.3d)
 
-~ ~~ Twitter: @Live \ _above \ _3d
+  Twitter: @Live \ _above \ _3d
 
 [<u> https://twitter.com/live\_above\_3d </u>] (https://twitter.com/Live_above_3d)
 
-~ ~~ reddit: live-above-3d <https://www.reddit.com/user/live-above-3d>
+  reddit: live-above-3d <https://www.reddit.com/user/live-above-3d>
 
 Instagram: <https://www.instagram.com/live.above .3d>
 
@@ -214,7 +214,7 @@ Facebook:
 
 ** <u> Versets bibliques </u> **
 
-** <Up> 8 </p> ** Encore une fois, le diable le prend en un plus haut ~ ~~ montagne, et lui montre tous les royaumes du monde, et la gloire
+** <Up> 8 </p> ** Encore une fois, le diable le prend en un plus haut   montagne, et lui montre tous les royaumes du monde, et la gloire
 
 d'eux;
 

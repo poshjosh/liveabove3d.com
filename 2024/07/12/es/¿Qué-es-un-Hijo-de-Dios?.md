@@ -76,7 +76,7 @@ A lo que la mujer respondió: “Si te hubiera hecho ir, entonces tendría que h
 
 "A través de Cristo - Dios eligió dar la bienvenida a la humanidad"
 
-"Dado que Dios no obligó a Adán a irse, tampoco obligará a la humanidad a regresar" ~ ~~ "Es algo legal" - dijo el pequeño.
+"Dado que Dios no obligó a Adán a irse, tampoco obligará a la humanidad a regresar"   "Es algo legal" - dijo el pequeño.
 
 "Los científicos entienden las leyes y cómo no se rompen, seguramente lo entenderán", dije.
 
@@ -124,7 +124,7 @@ Instagram: www.instagram.com/live.above.3d
 
 Facebook: www.facebook.com/profile/100092339087423
 
-verses bible ~ ~~ Marca 16: 17-18
+verses bible   Marca 16: 17-18
 
 John 14: 12-14
 
@@ -135,7 +135,7 @@ Romanos 8: 19-22
 
 Versos bíblicos
 
-Marcos 16: 17-18 ~~ ~ John 14: 12-14
+Marcos 16: 17-18   John 14: 12-14
 
 Romanos 8: 19-22
 

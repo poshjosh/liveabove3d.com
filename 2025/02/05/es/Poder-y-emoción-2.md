@@ -64,7 +64,7 @@ Referencias
 
 Parte 1
 
-• Blog: https://liveBove3d.com/2024/04/06/en/power-and-emotion/ ~ ~~
+• Blog: https://liveBove3d.com/2024/04/06/en/power-and-emotion/  
 
 • Tiktok: https://www.tiktok.com/@live.above.3d/video/7355401969172843809
 
@@ -84,10 +84,10 @@ Y al estar en agonía estaba rezando de manera muy ferviente, y su sudor se volv
 
 Recomendado
 
-https://liveBove3d.com/2024/08/13/en/power-to-thurn-your-life-around/ ~ ~~
+https://liveBove3d.com/2024/08/13/en/power-to-thurn-your-life-around/  
 
 https://www.tiktok.com/@live.above.3d/video/7402884436603292961
 
 https://www.youtube.com/shorts/lqyk2thkn-k
 
-~ ~ ~ ~~ #Jesus #faith #love #power #emotion #anger #hate #passionus #faith #love #power #emotion #anger #hate #passion
+    #Jesus #faith #love #power #emotion #anger #hate #passionus #faith #love #power #emotion #anger #hate #passion

@@ -46,11 +46,11 @@ Tavsiye edilen okuma
 
 • https://read.redodyofrealities.org/
 
-• https: //rapodiederrealität.de/lesen ~ ~~
+• https: //rapodiederrealität.de/lesen  
 
 • https://liveabove3d.com/2024/07/12/en/what-is-a-on-fod/
 
-• https://liveabove3d.com/2024 /07/12/de/was-~
+• https://liveabove3d.com/2024 /07/12/de/was-
 
 • Web sitesi: www.liveabovove3d.com
 

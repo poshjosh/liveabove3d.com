@@ -49,7 +49,7 @@ Instagram：www.instagram.com/live.above.3d
 
 Facebook：www.facebook.com/profile/1000923339087423＃viral #foryou waithandReason #truthinchristianity #scienceandfaith #christianityexplained #believeinjesus #evidenceforgod #understandingchristianity祝福された#hope #inspiration #beyondthephysical
 
-@live.above.3d @live_above_3d @live-above-3d @samshamoun @dailydoseofwisdom @empathetic_mindfultion @technoplusmedia @cosmoknowledge @themessagechannel1 @curisitysp @veritasium @kapchatfield ~~聖書 読書
+@live.above.3d @live_above_3d @live-above-3d @samshamoun @dailydoseofwisdom @empathetic_mindfultion @technoplusmedia @cosmoknowledge @themessagechannel1 @curisitysp @veritasium @kapchatfield 聖書 読書
 
 3今、蛇は主なる神が作った畑のどの獣よりも卑劣でした。 そして彼は女性に言った、そうだね、神はあなたがたは庭のすべての木を食べないだろうと言ったのですか？
 

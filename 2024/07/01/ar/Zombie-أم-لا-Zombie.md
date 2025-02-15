@@ -64,7 +64,7 @@ pedophiles.
 
 درس أعمق هو: "العديد من الزومبي لا يعرفون أنهم زومبيون"
 
-~~ الطريق للخروج ، هو تجديد عقلك باستمرار بكلمة الله - الرومان 12 الآية 2.
+ الطريق للخروج ، هو تجديد عقلك باستمرار بكلمة الله - الرومان 12 الآية 2.
 
 عليك أيضًا حماية عقلك بجد - Proverbs 4 الآية 23.
 
@@ -72,7 +72,7 @@ pedophiles.
 
 #believe #Christian #love #sin #hell #heaven #faith #yahweh #god #higherlife
 
-~~ ~ ~ ~
+   
 
 ephesians 2: 2 ، ماثيو 5:44 ، يوحنا 16:33 ، رومية 12: 2 ، الأمثال 4:23
 
@@ -84,7 +84,7 @@ youtube: www.youtube.com/@live.above.3d
 
 tiktok: www.tiktok.com/@live.above.3d
 
-Twitter: www.twitter.com/live_above_3d ~ ~~
+Twitter: www.twitter.com/live_above_3d  
 
 reddit: www.reddit.com/user/live-above-3d
 
@@ -94,13 +94,13 @@ facebook: www.facebook .com/profile/100092339087423
 
 #viral #foryou #liveabove3d #jesus #ChristianApologetics #loveofgod Faithvsscience #seekingtruth #logicandbelief #المسيحية 101 #questioningatheism #debunkingmyths #godandscience #discoveringfaith #Christianliving #Blated #Inspiration #beyondthephysical
 
-~~ @live.above cosmoknowledge @themessagechannel1curiositysperitasium @kapchatfield.07 @ken.arringtontedtoks @the.anymous.prophetoffThekirbStartalk
+ @live.above cosmoknowledge @themessagechannel1curiositysperitasium @kapchatfield.07 @ken.arringtontedtoks @the.anymous.prophetoffThekirbStartalk
 
-~~ ~
+ 
 
-~~ ~ ~ ~ ye saled to the the the the هذا العالم ، وفقا لأمير قوة الهواء ، والروح التي تعمل الآن في أطفال العصيان:
+    ye saled to the the the the هذا العالم ، وفقا لأمير قوة الهواء ، والروح التي تعمل الآن في أطفال العصيان:
 
-~~ ~ ~ أفسس 2: 2
+   أفسس 2: 2
 
 لكنني أقول لك ، أحب أعدائك ، باركهم في لعنةك ، وفعل الخير لهم الذين يكرهونك ، ويصلي من أجلهم على الرغم من استخدامك لك ، واضطهادك ؛
 

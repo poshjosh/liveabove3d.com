@@ -102,4 +102,4 @@ Romani 5:19
 
 #viral #Foryou #LiveaBove3d #God #Jusus #ChristianApologetics #LoveOfGod #FaithAndReason #TruthInChristianity #ScienceAndFaith #ChristianityExplained #BelieveInJesus #ReasonsForFaith #EvidenceForGod #UnderstandingChristianity #FaithVsScience #SeekingTruth #LogicAndBelief #Christianity101 #QuestioningAtheism #DebunkingMyths #GodAndScience #DiscoveringFaith #christianliving #blessed #hope #inspiration #BeyondThePhysical
 
-~ ~~ #ChristianSliving #Blessed #Hope #inspiration #beyondthephysical
+  #ChristianSliving #Blessed #Hope #inspiration #beyondthephysical

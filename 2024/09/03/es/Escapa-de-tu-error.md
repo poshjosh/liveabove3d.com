@@ -41,7 +41,7 @@ Dijo.
 
 #VIRAL #FORYOU #LIVEABOVE3D #GOD #JESUS ​​#CHRISTIANAPELICICS TruthinChristianity #scienceandfaith #ChristianityExplained #believeInjesus #ReasonSforFaith #EvidenceForGod #understandingChristianity #FaITHVSScience #SeEkingTruth #LogicandBelief #Christianity101 #QuesteSingAsm #Inspiration #BeyondThephysical
 
-@live.ABOVE.3D @live_above_3d @Live-Above-3D @samshamoun @DailyDoseOfWisdom @Empathetic_Mindfure @spacerewind @technoplusmedia @cosmoknowledge @themessageChannel1 @curiosssp @veritasium @kapchatfield.07 @ken.arrington @tileks @the.anonymous.prophet @veritasium @kapchfield.07 @ken.arrington @tileks @the.anonymous.prophet @veritasium @kapchfield.07 @ken.arrington @Ttoks @the.anonymous.prophet @veritasiM ~~ Sitio web: www.liveBove3d.com
+@live.ABOVE.3D @live_above_3d @Live-Above-3D @samshamoun @DailyDoseOfWisdom @Empathetic_Mindfure @spacerewind @technoplusmedia @cosmoknowledge @themessageChannel1 @curiosssp @veritasium @kapchatfield.07 @ken.arrington @tileks @the.anonymous.prophet @veritasium @kapchfield.07 @ken.arrington @tileks @the.anonymous.prophet @veritasium @kapchfield.07 @ken.arrington @Ttoks @the.anonymous.prophet @veritasiM  Sitio web: www.liveBove3d.com
 
 
 YouTube: www.youtube.com/@live.above.3d

@@ -137,7 +137,7 @@ Vahiy 17: 1- 9
 ** <U> bağlantılar </u> **
 <https://youtu.be/65v3zuqk3hg>
 
-~ <https://www.tiktok.com/@live.above.3d/video/7300858668017339681>
+ <https://www.tiktok.com/@live.above.3d/video/7300858668017339681>
 
 
 

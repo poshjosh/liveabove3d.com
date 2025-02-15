@@ -14,7 +14,7 @@ Jésus est notre défenseur - 1 Jean 2: 1
 
 Satan est l'accusateur - Apocalypse 12:10
 
-~ ~~ Il y a une multitude de témoins - Hébreux 12: 1
+  Il y a une multitude de témoins - Hébreux 12: 1
 
 La foi est la preuve - Hébreux 11: 1
 
@@ -108,6 +108,6 @@ Instagram: www.instagram.com/live.above.3d
 
 Facebook: www.facebook.com/profile/100092339087423
 
-~ ~~ #Viral #Foryou # liveAbove3d #god #jesus #ChristianapoGetics #LoveOfGod #faithandReason #TruthInChristianity #ScienceNandFaitH Croyance # christianity101 #questioningatheism #debunkingmyths #godandscience #DiscoveringFaith #ChristianLiving #blessed #hope #inspiration #BeyondThePhysical
+  #Viral #Foryou # liveAbove3d #god #jesus #ChristianapoGetics #LoveOfGod #faithandReason #TruthInChristianity #ScienceNandFaitH Croyance # christianity101 #questioningatheism #debunkingmyths #godandscience #DiscoveringFaith #ChristianLiving #blessed #hope #inspiration #BeyondThePhysical
 
 @live.above.3d @live_above_3d @live-above-3d @samshamoun @dailydoseofwisdom @Empathetic_Mindfulness @SpaceRewind @technoplusmedia @Cosmoknowledge @themessagechannel1 @CuriositySp @veritasium @kapchatfield.07 @ ken.arrington @tedtoks @ the.anonymous.prophet @offthekirb @ startalktfield.07 @ ken.arrington @tedtoks @.anonymous.prophet @offthekirb @startalk

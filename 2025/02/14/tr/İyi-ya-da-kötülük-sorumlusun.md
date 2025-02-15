@@ -84,7 +84,7 @@ Shalom.
 
 İncil ayetler
 
-~ ~ ~~ iyi inanç mücadelesiyle savaşın. Aradığınız ebedi hayatı ele alalım ve birçok tanığın huzurunda iyi bir itiraf yaptınız. - 1 Timoteos 6:12
+   iyi inanç mücadelesiyle savaşın. Aradığınız ebedi hayatı ele alalım ve birçok tanığın huzurunda iyi bir itiraf yaptınız. - 1 Timoteos 6:12
 
 Savaşımızın silahları ete değil, spekülasyonları yıkarken ve Tanrı'nın bilgisine karşı yükseltilen her yüce şey, kalelerin yıkılması için ilahi olarak güçlüdür ve her düşünceyi Mesih'in itaatine esir alın. -2 Korintliler 10: 4-5
 
@@ -94,7 +94,7 @@ Tavsiye Edilen
 
 • İngilizce: https://liveabove3d.com/en/welcome/
 
-• Deutsch: https://liveabove3d.com/de/Herzlich-willkommen/ ~ ~~
+• Deutsch: https://liveabove3d.com/de/Herzlich-willkommen/  
 
 Daha fazla bilgi edinin
 
@@ -102,7 +102,7 @@ Daha fazla bilgi edinin
 
 • YouTube: www.youtube.com/@live.above.3d
 
-~ • Tiktok: www.tiktok.com/@live.above.3d
+ • Tiktok: www.tiktok.com/@live.above.3d
 
 • x: www.x.com/live_above_3d
 
@@ -110,6 +110,6 @@ Daha fazla bilgi edinin
 
 • Instagram: www.instagram.com/live.above.3d
 
-• Facebook: www.facebook.com/profile/10009239087423om/live.above.3d/ ~ ~~
+• Facebook: www.facebook.com/profile/10009239087423om/live.above.3d/  
 
 • Facebook: www.facebook.com/profile/100092339087423

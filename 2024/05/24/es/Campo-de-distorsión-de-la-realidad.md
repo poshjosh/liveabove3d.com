@@ -84,6 +84,6 @@ Instagram: www.instagram.com/live.above.3d
 
 Facebook: www.facebook.com/profile/100092339087423
 
-~~ ~ #viral #foryou #LiveAbove3D #god #jesus #ChristianApologetics #LoveOfGod #FaithAndReason #TruthInChristianity #ScienceAndFaith #ChristianityExplained #BelieveInJesus #ReasonsForFaith #EvidenceForGod #UnderstandingChristianity #FaithVsScience #SeekingTruth #LogicAndBelief #Christianity101 #QuestioningAtheism #DebunkingMyths #GodAndScience #DiscoveringFaith #christianliving # Bendito #Hope #Inspiration #BeyondThePhysical
+  #viral #foryou #LiveAbove3D #god #jesus #ChristianApologetics #LoveOfGod #FaithAndReason #TruthInChristianity #ScienceAndFaith #ChristianityExplained #BelieveInJesus #ReasonsForFaith #EvidenceForGod #UnderstandingChristianity #FaithVsScience #SeekingTruth #LogicAndBelief #Christianity101 #QuestioningAtheism #DebunkingMyths #GodAndScience #DiscoveringFaith #christianliving # Bendito #Hope #Inspiration #BeyondThePhysical
 
 @live.ABOVE.3D @live_above_3d @live-love-3d @samshamoun @DailyDoseOfWisdom @empathetic_mindfure @spacerewind @technoplusmedia @cosmoknowledge @theessageChannel1 ken.arrington @tettoks @the.anonymous.prophet @offthekirb @startalk.anonymous.prophet @offthekirb @startalk

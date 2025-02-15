@@ -10,7 +10,7 @@ Ancak, Genesis'te Bölüm 2, bitki ve hayvanlardan önce insan yaratıldı.
 Neden karışım?
 
 Bu soru Hıristiyanları rahatsız etti ve İncil'in
-~~ ~~ ~~ ~~
+   
 
 Bununla birlikte, bu soru, birçok kafa karıştırıcı manevi konu gibi
 sadece 3 boyut olduğunu varsayar.

@@ -76,7 +76,7 @@ Auquel la femme a répondu: «Si je vous avais poussé à partir, alors je devra
 
 «Par Christ - Dieu a choisi d'accueillir l'humanité»
 
-«puisque Dieu n'a pas forcé Adam à partir, il ne forcera pas non plus l'humanité à revenir» ~ ~~ «C'est une chose légale» - a dit le petit.
+«puisque Dieu n'a pas forcé Adam à partir, il ne forcera pas non plus l'humanité à revenir»   «C'est une chose légale» - a dit le petit.
 
 «Les scientifiques comprennent les lois et comment ils ne sont pas brisés - ils comprendront sûrement cela» - ai-je dit.
 
@@ -105,7 +105,7 @@ Shalom.
 #SonsOfGod #neildEgrasseTySON #Scientists #Believe #Christian #Love #faith #yahweh #god
 
 
-#Viral #Foryou # liveAbove3d #god #jesus #ChristianaporoGetic Injesus #reasonsforfaith #Evidenceforgod #Understandingchristianity #faithvsscience #seekingtruth #logicandbellief # christianity101 #questioningAtheism #Debunkingmyths #godandise 3d @samshamoun @ DailyDoseOfWisdom @Empathetic_Mindfurfy @spacerewind @technoplusmedia @cosmoknowledge @ theMessageChannel1 @curiositysp @veritasium @ kapchatfield.07 @ ken.arrington @tedtoks @ the.anonymous.prophet @offthekirb @startalk ~~ir
+#Viral #Foryou # liveAbove3d #god #jesus #ChristianaporoGetic Injesus #reasonsforfaith #Evidenceforgod #Understandingchristianity #faithvsscience #seekingtruth #logicandbellief # christianity101 #questioningAtheism #Debunkingmyths #godandise 3d @samshamoun @ DailyDoseOfWisdom @Empathetic_Mindfurfy @spacerewind @technoplusmedia @cosmoknowledge @ theMessageChannel1 @curiositysp @veritasium @ kapchatfield.07 @ ken.arrington @tedtoks @ the.anonymous.prophet @offthekirb @startalk ir
 
 YouTube: www.youtube.com/@live.above.3d
 
@@ -120,7 +120,7 @@ Instagram: www.instagram.com/live.above.3d
 
 Facebook: www.facebook.com/profile/100092339087423
 
-Bible Versets ~ ~~ Marc 16: 17-18
+Bible Versets   Marc 16: 17-18
 
 Jean 14: 12-14
 
@@ -131,7 +131,7 @@ Romans 8: 19-22
 
 Versets bibliques
 
-Marc 16: 17-18 ~~ ~ Jean 14: 12-14
+Marc 16: 17-18   Jean 14: 12-14
 
 Romains 8: 19-22
 

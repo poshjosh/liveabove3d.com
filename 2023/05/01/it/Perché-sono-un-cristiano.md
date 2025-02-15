@@ -42,7 +42,7 @@ uomini. La più alta autorità legale nel terreno è generalmente responsabile d
 il giuramento di un nuovo presidente nella maggior parte dei paesi. Alcuni paesi
 chiamano questa autorità legale il giudice principale. Quindi, la giustizia principale
 giura il nuovo presidente. È così importante. La Torah, la Bibbia e
-Corano ci dicono tutti che Dio è il giudice di tutti. Non c'è da stupirsi, solo Dio è ~~ registrato per aver avviato una nuova epoca dell'umanità. Pensa a questo.
+Corano ci dicono tutti che Dio è il giudice di tutti. Non c'è da stupirsi, solo Dio è  registrato per aver avviato una nuova epoca dell'umanità. Pensa a questo.
 Dio ti benedica mentre ci pensi con sincerità.
 ** Perché sono cristiano. Il motivo numero due. **
 ** Cosa ha fatto il tuo Dio per te? ** Il mio è morto per me.

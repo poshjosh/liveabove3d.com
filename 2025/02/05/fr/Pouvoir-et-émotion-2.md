@@ -64,7 +64,7 @@ Références
 
 Partie 1
 
-• Blog: https://liveabove3d.com/2024/04/06/en/power-and-emotion/ ~ ~~
+• Blog: https://liveabove3d.com/2024/04/06/en/power-and-emotion/  
 
 • tiktok: https://www.tiktok.com/@live.above.3d/video/7355401969172843809
 
@@ -84,10 +84,10 @@ et étant à l'agonie, il priait très ferveur, et sa sueur est devenue comme de
 
 Recommandé
 
-https://liveabove3d.com/2024/08/13/en/power-toturn-your-life-around/ ~ ~~
+https://liveabove3d.com/2024/08/13/en/power-toturn-your-life-around/  
 
 https://www.tiktok.com/@live.above.3d/video/7402884436603292961
 
 https://www.youtube.com/shorts/lqyk2thkn-k
 
-~ ~ ~~ #Jesus #faith #love #Power #EMOTION #Aanger #Hate #passionus #faith #love #Power #EMOTION #Aanger #Hate #passion
+   #Jesus #faith #love #Power #EMOTION #Aanger #Hate #passionus #faith #love #Power #EMOTION #Aanger #Hate #passion

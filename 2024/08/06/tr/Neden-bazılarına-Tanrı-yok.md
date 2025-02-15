@@ -48,7 +48,7 @@ Tiktok: www.tiktok.com/@live.above.3d
 
 Twitter: www.twitter.com/live_above_3d
 
-~~ ~~ ~ Reddit: www.reddit.com/user/live-wove-3d
+   Reddit: www.reddit.com/user/live-wove-3d
 
 Instagram: www.instagram.com/live.above.3d
 

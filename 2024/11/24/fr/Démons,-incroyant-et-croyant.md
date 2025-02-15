@@ -42,7 +42,7 @@ Partagez cela avec quelqu'un qui a besoin de cette révélation.
 
 #VIRAL #Foryou # liveAbove3d #god #Jesus #CristianapOrEtic ScienceAndfaith #BeyondThephysical
 
-Versets bibliques ~~ ~
+Versets bibliques  
 
 LUKE 8: 26-39
 

@@ -12,7 +12,7 @@ para hacerte odioso
 
 Prepara y pregunte
 
-Dios; ~ El Señor lucha por ti.
+Dios;  El Señor lucha por ti.
 
 Éxodo 14:14
 
@@ -28,7 +28,7 @@ shalom
 
 Versos bíblicos
 
-~
+
 
 él quien es lento para la ira
 

@@ -38,7 +38,7 @@ Avísame en la sección de comentarios.
 
 #trump #putin #antichrist #ww3 #nuclearwar #USA
 
-#viral #foryou #liveBove3d #god #Jesus #ChristianApologetics #LoveOfGod #FaITHANDRAATER BelieveRJesus #ReasonSforFaith #EvidenceForGod #EnderStandingChristianity #FaITHVSSCIECE #SEEKTRUTH #LOGICANDBELIF ~
+#viral #foryou #liveBove3d #god #Jesus #ChristianApologetics #LoveOfGod #FaITHANDRAATER BelieveRJesus #ReasonSforFaith #EvidenceForGod #EnderStandingChristianity #FaITHVSSCIECE #SEEKTRUTH #LOGICANDBELIF 
 
 Luego miré, y he aquí un caballo blanco, y el que se sienta sobre él tenía un arco; Y se le dio una corona, y salió superando y superado.
 

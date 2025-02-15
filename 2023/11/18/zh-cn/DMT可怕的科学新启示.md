@@ -83,13 +83,13 @@ DMTS的案例：
 
 340 DMT TRIP报告：
 
-~~ <
+ <
 
-~ < https://www.serendipity.li/dmt/340_dmt_trip_reports.htm>
+ < https://www.serendipity.li/dmt/340_dmt_trip_reports.htm>
 如果存在上帝，它们在哪里？ - 第2部分
 
 YouTube：<https：//www.youtube.com/watch?v=euhray2lxrc>
-~ /视频/7227847702485241093>
+ /视频/7227847702485241093>
 
 
 

@@ -14,7 +14,7 @@ Jesús es nuestro defensor - 1 Juan 2: 1
 
 Satanás es el acusador - Apocalipsis 12:10
 
-~ ~ ~~ Hay una multitud de testigos: Hebreos 12: 1
+   Hay una multitud de testigos: Hebreos 12: 1
 
 La fe es evidencia - Hebreos 11: 1
 
@@ -108,6 +108,6 @@ Instagram: www.instagram.com/live.above.3d
 
 Facebook: www.facebook.com/profile/100092339087423
 
-~ ~ ~~ #Viral #foryou #liveBove3d #god #jesus #ChristianApologetics #LoveOfGod #FaITHANDRASE Christianity101 #Questingingatheism #DebunkingMyths #Godandscience #discoveringfaith #ChristianLiving #BLESSED #HOPE #InSpiration #BeyondThePhySical
+   #Viral #foryou #liveBove3d #god #jesus #ChristianApologetics #LoveOfGod #FaITHANDRASE Christianity101 #Questingingatheism #DebunkingMyths #Godandscience #discoveringfaith #ChristianLiving #BLESSED #HOPE #InSpiration #BeyondThePhySical
 
 @live.ABOVE.3D @live_above_3d @live-love-3d @samshamoun @DailyDoseOfWisdom @empathetic_mindfure @spacerewind @ttnoplusmedia @cosmoknowledge @theessageChannel1 @curiOsspsspsspsspiSsep. @ken.arrington @tettoks @the.anonymous.prophet @offthekirb @startalktfield.07 @ken.arrington @tetoks @the.anonymous.prophet @offthekirb @startalk

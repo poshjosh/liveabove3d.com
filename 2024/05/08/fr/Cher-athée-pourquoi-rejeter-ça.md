@@ -64,7 +64,7 @@ reddit: live-above-3d www .reddit.com / user / live-above-3d
 
 Instagram: www.instagram.com/live.above.3d
 
-Facebook: /www.facebook.com/profile/100092339087423 ~ ~~
+Facebook: /www.facebook.com/profile/100092339087423  
 
 #Viral #Foryou # liveAbove3d #god #Jesus #ChristianapoGoroGetics #LoveOfGod #FaithandReason #TRUTHINCHRISTIANIY OgicandBelief # christianity101 #questioningatheism #DeBunkingMyths #GodandScience # DiscoveringFaith #ChristianLiving #Bessed #Hope #inspiration #BeyondThephysical
 

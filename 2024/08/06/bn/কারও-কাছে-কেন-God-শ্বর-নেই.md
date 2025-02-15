@@ -34,13 +34,13 @@
 
 । Faithandrason #truthinchristianity #SCIENCEANDFAITH #CHRISTIANYTYEXPLAIND #BELUEYINJESUS ​​#REASONSFORFAITHE #EVIDESFORGOD #NEDSTANDCHRISTIANYTY আইভিং #ব্লেসড #হোপ #ইনস্পারেশন #BEYONDTHEPHYSICL
 
-@লাইভ। উপরে .3 ডি @লাইভ_এবভ_3 ডি @লাইভ-এবোভ -3 ডি একিরব ~ ~~
+@লাইভ। উপরে .3 ডি @লাইভ_এবভ_3 ডি @লাইভ-এবোভ -3 ডি একিরব  
 
 আরও জানুন
 
 ওয়েবসাইট: www.liveabove3d.com : www.tiktok.com/@live.above.3d
 
-টুইটার: www.twitter.com/live_above_3d ~~
+টুইটার: www.twitter.com/live_above_3d 
 
 ইনস্টাগ্রাম: www.instagram.com/live.above.3d
 

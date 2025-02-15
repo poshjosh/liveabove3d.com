@@ -16,7 +16,7 @@ Adam, Tanrı'nın etkisinden kurtulduğunu biliyordu, ama aynı şekilde aynı �
 
 Bu yüzden Efesliler 2: 2 Şeytan'a “Havanın Gücün Prensi
 
-~~ ~~ ~~ ~~” denir.
+   ” denir.
 İşte Hıristiyanların kasıtsız olarak
 
 şeytanın etkisine boyun eğebilecekleri 2 durum.

@@ -47,7 +47,7 @@ Benzer şekilde, 16-18 ayetinden Vahiy 13'te,
 bir işaretle zorla dünyaya yayılacaktır.
 
 İncil'in nasıl koyduğu aşağıdakiler:
-ve hem küçük hem de büyük, zengin ve fakir, özgür ve bağ, sağ ellerinde veya alnlarında bir işaret almasına neden olur: ~ ~~ ve hiç kimse alamaz veya satamaz, işaretine sahip olanı ya da canavarın adını ya da isminin sayısını kurtaramaz.
+ve hem küçük hem de büyük, zengin ve fakir, özgür ve bağ, sağ ellerinde veya alnlarında bir işaret almasına neden olur:   ve hiç kimse alamaz veya satamaz, işaretine sahip olanı ya da canavarın adını ya da isminin sayısını kurtaramaz.
 
 Vahiy 13 Ayet 18: “Ona bakılmasına izin ver, canavarın sayısını saysın: çünkü bu bir adamın sayısıdır;”
 … ve sayısı altı yüz üç ve altı.

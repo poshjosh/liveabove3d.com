@@ -48,7 +48,7 @@ Arkadaşım - Hıristiyanlık.
 
 Önerilen
 
-• İngilizce: https: // Read. rhapsodyofrealities.org/ ~~
+• İngilizce: https: // Read. rhapsodyofrealities.org/ 
 
 • Deutsch: https: //riveabove3d.com/en/welcome/
 
@@ -60,7 +60,7 @@ Arkadaşım - Hıristiyanlık.
 
 • tiktok: www.tiktok.com/@live.above.3d
 
-• x: www.x.com/live_above_3d ~ ~~
+• x: www.x.com/live_above_3d  
 
 • REDDIT: www.reddit.com/user/live-wove-3d
 

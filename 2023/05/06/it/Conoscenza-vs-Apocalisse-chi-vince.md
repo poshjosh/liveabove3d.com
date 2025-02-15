@@ -2,7 +2,7 @@
 
 ** <u> Conoscenza vs Apocalisse - Chi vince? </u> **
 
-a uno scienziato, che sembra essere cristiano, è stato chiesto quanto segue ~ ~~ Domanda.
+a uno scienziato, che sembra essere cristiano, è stato chiesto quanto segue   Domanda.
 Perché scegli di adorare un Dio, che non voleva che l'umanità avesse una conoscenza
 
 ; Questo non voleva che l'umanità mangi il frutto dell'albero

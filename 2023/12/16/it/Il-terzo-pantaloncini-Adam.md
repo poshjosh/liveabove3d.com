@@ -56,7 +56,7 @@ aspirante Adamo verrà diffuso con la forza su tutta la terra attraverso un segn
 Ecco come la diceva la Bibbia:
 
 e fa causa a tutti, sia piccoli che grandi, ricchi e poveri, liberi e legami,
-per ricevere un segno nella mano destra o sulla fronte: ~ ~~ E che nessun uomo potesse acquistare o vendere, salvare colui che aveva il segno, o il nome
+per ricevere un segno nella mano destra o sulla fronte:   E che nessun uomo potesse acquistare o vendere, salvare colui che aveva il segno, o il nome
 
 della bestia o il numero del suo nome.
 Apocalisse 13 Versetto 18: "Lascia che abbia la comprensione del numero

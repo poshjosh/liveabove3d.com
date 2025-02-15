@@ -82,7 +82,7 @@ Instagram: www.instagram.com/live.above.3d
 
 Facebook: www.facebook.com/profile/100092339087423
 
-verses bible ~ ~~ Incluso el misterio que se ha escondido de los siglos y de generaciones, pero ahora se manifiesta a sus santos:
+verses bible   Incluso el misterio que se ha escondido de los siglos y de generaciones, pero ahora se manifiesta a sus santos:
 
 
 a quién Dios daría a saber cuáles son las riquezas de la gloria de este misterio entre los gentiles; que es Cristo en ti, la esperanza de gloria:

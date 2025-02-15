@@ -118,7 +118,7 @@ Matthew 10: 7
 ** <U> Kitaplar </ u > **
 Şimdi tekrar doğduğunuza göre:
 <https://www.amazon.de//en/pastor-yye-Yakhilome-phd-ebook/dp/b003xntgb0>
-** <U> Links </u> ** ~~ ~~ ~~ ~~ ~~ <https://archive.org/details/carlorffortunacarmminaburana>
+** <U> Links </u> **      <https://archive.org/details/carlorffortunacarmminaburana>
 
 youtube: <https://youtu.be/xlpkwlk5dbu>
 

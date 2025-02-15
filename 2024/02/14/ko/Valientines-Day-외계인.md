@@ -48,7 +48,7 @@
 
 레이스 3과 4는 모두 인간을 많이 전진시킬 수있는 것처럼 보였다.
 
-플립 쪽에서, 3 ~ 4 경주를 거부하면
+플립 쪽에서, 3  4 경주를 거부하면
 
 인류에 대한 불행으로 이어질 것입니다.
 
@@ -130,7 +130,7 @@ Alien Race 4의 지도자는이 비행기에 아바타를 해산했습니다.
 
 YouTube :
 
-[<U> https://www.youtube.com/@live.above.3d </u>] (https://www.youtube.com/@live.above.3d) ~~ ~
+[<U> https://www.youtube.com/@live.above.3d </u>] (https://www.youtube.com/@live.above.3d)  
 
 tiktok :
 
@@ -142,7 +142,7 @@ tiktok :
 
 Reddit : live-above-3d <https://www.reddit.com/user/live-above-3d>
 
-~~ Instagram : <https : //www.instagram .com/live.above.3d>
+ Instagram : <https : //www.instagram .com/live.above.3d>
 
 Facebook :
 

@@ -48,7 +48,7 @@ Instagram: https://www.instagram.com/live.above.3d
 
 Facebook: https://www.facebook.com/profile/100092339087423
 
-~ ~~
+ 
 
 Versi della Bibbia
 

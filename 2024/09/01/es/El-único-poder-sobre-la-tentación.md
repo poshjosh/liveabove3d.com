@@ -52,7 +52,7 @@ Reddit: www.reddit.com/user/live-above-3d
 
 Instagram: www.instagram.com/live.above.3d
 
-Facebook: www.facebook.com/profile/100092339087423 ~~ ~ Versos bíblicos
+Facebook: www.facebook.com/profile/100092339087423   Versos bíblicos
 
 Mateo 26:41
 

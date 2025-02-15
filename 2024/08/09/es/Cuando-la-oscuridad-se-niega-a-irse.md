@@ -56,7 +56,7 @@ Instagram: www.instagram.com/live.above.3d
 
 Facebook: www.facebook.com/profile/100092339087423
 
-verses bible ~ ~~ Génesis 20: 1-19, 21: 1-2
+verses bible   Génesis 20: 1-19, 21: 1-2
 
 Job 42: 10Nesis 20: 1-19, 21: 1-2
 

@@ -104,7 +104,7 @@ Dado que todos han pecado y continuamente quedan corto de la gloria de Dios.
 
 Romanos 3:23 (amp)
 
-y se puede encontrar en él \ [creyendo y confiando en él \], sin tener ninguna justicia propia derivada de \ [mi obediencia a \] el ~ ~~ Ley*y*sus rituales, pero \ [poseer \] que \ [justicia genuina \]
+y se puede encontrar en él \ [creyendo y confiando en él \], sin tener ninguna justicia propia derivada de \ [mi obediencia a \] el   Ley*y*sus rituales, pero \ [poseer \] que \ [justicia genuina \]
 viene a través de la fe en Cristo, la justicia que proviene de
 Dios sobre la base de la fe
 Filipenses 3: 9 (amplificador)

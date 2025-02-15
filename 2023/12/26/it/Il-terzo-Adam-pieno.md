@@ -480,7 +480,7 @@ dell'acqua: e cessarono e c'era una calma.
 Luca 8: 23-24
 
 ** Gesù le disse: io sono la risurrezione e la vita: colui che
-crede in me, sebbene fosse morto, eppure vivrà **: ~ ~~ Giovanni 11:25
+crede in me, sebbene fosse morto, eppure vivrà **:   Giovanni 11:25
 ** <Sup> 17 </up> ** E gli è stato consegnato il libro del
 
 Profeta Esaias. E quando aveva aperto il libro, trovò il posto
@@ -518,7 +518,7 @@ Mathew 2: 1-2
 
 ** poi Pilato ** è entrato di nuovo nella sala del giudizio, e ** ha chiamato
 
-Gesù, e gli ha detto che tu il re degli ebrei? ** ~ ~~ Gesù gli rispose, dice che tu questa cosa di te stesso, o gli altri
+Gesù, e gli ha detto che tu il re degli ebrei? **   Gesù gli rispose, dice che tu questa cosa di te stesso, o gli altri
 ti dicevano da me?
 Pilato ha risposto, sono un ebreo? La tua nazione e i campi sacerdoti ti hanno consegnato
 

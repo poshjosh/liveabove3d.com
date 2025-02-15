@@ -41,7 +41,7 @@ a-t-il dit.
 
 #VIRAL #Foryou # LiveAbove3d #god #Jesus #ChristianapoEttics #LoveOfGod #faHandReason # Droignchristianity #scienceandfaith #ChristianityExplayé #BelieveInJesus #ReasonsForfaith #Evidenceforgod #Understandingchristianity #faithvscience #seekingtruth #LogicandBelief # christiancity101 ed #hope #inspiration #BeyondThephysical
 
-@ live.above.3d @ live_above_3d @ live-above-3d @samshamoun @dailydoseofwisdom @empathetic_mindulness @spacerewind @technoplusmedia @cosmoknowledge @ theMessageChannel1 @curiositysp @veritasium @ kapchatfield.07 @ ken.arrington @starts @ the.anonymous ~~ Site Web: www.liveabove3d.com
+@ live.above.3d @ live_above_3d @ live-above-3d @samshamoun @dailydoseofwisdom @empathetic_mindulness @spacerewind @technoplusmedia @cosmoknowledge @ theMessageChannel1 @curiositysp @veritasium @ kapchatfield.07 @ ken.arrington @starts @ the.anonymous  Site Web: www.liveabove3d.com
 
 
 YouTube: www.youtube.com/@live.above.3d
