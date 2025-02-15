@@ -1,4 +1,4 @@
-![Video cover image](./cover.jpg)
+![Video cover image](../cover.jpg)
 You lost your job.
 
 You pray fervently about this.

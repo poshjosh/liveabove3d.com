@@ -1,4 +1,4 @@
-![Video cover image](./cover.jpg)
+![Video cover image](../cover.jpg)
 One night, I dreamt that I had a test to write.
 
 During the test, everything mysteriously went wrong.

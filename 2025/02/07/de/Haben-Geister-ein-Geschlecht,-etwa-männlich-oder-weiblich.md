@@ -1,4 +1,4 @@
-![Video cover image](./cover.jpg)
+![Video cover image](../cover.jpg)
 Ist Gott männlich oder weiblich? - Warten Sie, ist er beide? - oder etwas anderes?
 
 Hmmm.

@@ -1,4 +1,4 @@
-![Video cover image](./cover.jpg)
+![Video cover image](../cover.jpg)
 Ich denke oft an John the Baptist.
 
 Er war der rechtschaffenste und heiligste seiner Zeit. Tatsächlich sagte Jesus:

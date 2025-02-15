@@ -1,4 +1,4 @@
-![Video cover image](./cover.jpg)
+![Video cover image](../cover.jpg)
 Is God male or female? - wait, is he both? – or something else?
 
 Hmmm.

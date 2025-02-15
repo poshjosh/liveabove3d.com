@@ -1,4 +1,4 @@
-![Video cover image](./cover.jpg)
+![Video cover image](../cover.jpg)
 I often think about John the Baptist.
 
 He was the most righteous and holy of his time.
