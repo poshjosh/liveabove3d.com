@@ -52,7 +52,7 @@ tiktok: www.tiktok.com/@live.above.3d
 
 Twitter: www.twitter.com/live_above_3d
 
-reddit: www.reddit.com/user/live -Above-3d
+reddit: www.reddit.com/user/live-above-3d
 
 Instagram: www.instagram.com/live.above.3d
 

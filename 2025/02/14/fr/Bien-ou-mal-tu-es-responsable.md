@@ -108,7 +108,7 @@ En savoir plus
 
 • x: www.x.com/live_above_3d
 
-• reddit: www.reddit.com/user/Live -Above-3d
+• reddit: www.reddit.com/user/live-above-3d
 
 • Instagram: www.instagram.com/live.above.3d
 
