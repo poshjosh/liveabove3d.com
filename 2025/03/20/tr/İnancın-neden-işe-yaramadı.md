@@ -1,4 +1,4 @@
-![Video cover image](../Slide1.jpeg)
+![Video cover image](../cover.jpeg)
 İnanç neden benim için işe yaramadı?
 
 Hmmm.

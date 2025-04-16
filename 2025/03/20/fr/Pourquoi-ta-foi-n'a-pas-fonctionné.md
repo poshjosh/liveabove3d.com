@@ -1,4 +1,4 @@
-![Video cover image](../Slide1.jpeg)
+![Video cover image](../cover.jpeg)
 Pourquoi la foi n'a-t-elle pas fonctionné pour moi?
 
 Hmmm.

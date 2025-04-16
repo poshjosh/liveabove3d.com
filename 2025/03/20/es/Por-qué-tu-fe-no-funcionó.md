@@ -1,4 +1,4 @@
-![Video cover image](../Slide1.jpeg)
+![Video cover image](../cover.jpeg)
 ¿Por qué la fe no funcionó para mí?
 
 hmmm.

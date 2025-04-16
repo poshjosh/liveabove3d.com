@@ -1,4 +1,4 @@
-![Video cover image](../Slide1.jpeg)
+![Video cover image](../cover.jpeg)
 Perché la fede non ha funzionato per me?
 
 hmmm.
