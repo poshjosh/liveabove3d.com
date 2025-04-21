@@ -73,4 +73,4 @@ PROMPT TO GENERATE COVER IMAGE
 
 Star forming gas in space. the gas is in the shape of a hand holding a knife. the gas should be striking. the space behind should striking with a few bright stars. the stars should be distant but bright.
 
-https://ideogram.ai/g/C9cqgINiSwiufSMrzIFspQ/3ideogram.ai/g/C9cqgINiSwiufSMrzIFspQ/3
+https://ideogram.ai/g/C9cqgINiSwiufSMrzIFspQ/3
