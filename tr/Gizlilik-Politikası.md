@@ -1,5 +1,3 @@
-# Gizlilik Politikası
-
 **Son Güncelleme:** 26 Ekim 2025
 
 ## Giriş

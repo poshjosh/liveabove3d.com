@@ -1,5 +1,3 @@
-# Termini di servizio
-
 **Ultimo aggiornamento:** 26 ottobre 2025
 
 ## 1. Accordo sui termini

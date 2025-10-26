@@ -1,5 +1,3 @@
-# Política de privacidad
-
 **Última actualización:** 26 de octubre de 2025
 
 ## Introducción

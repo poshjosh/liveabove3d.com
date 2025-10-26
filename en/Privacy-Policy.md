@@ -1,5 +1,3 @@
-# Privacy Policy
-
 **Last Updated:** 26 October 2025
 
 ## Introduction

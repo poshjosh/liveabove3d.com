@@ -1,5 +1,3 @@
-# Datenschutzrichtlinie
-
 **Letzte Aktualisierung:** 26. Oktober 2025
 
 ## Einführung

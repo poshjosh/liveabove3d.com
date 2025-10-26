@@ -1,5 +1,3 @@
-# Politique de confidentialité
-
 **Dernière mise à jour :** 26 octobre 2025
 
 ## Introduction

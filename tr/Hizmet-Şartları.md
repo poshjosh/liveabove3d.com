@@ -1,5 +1,3 @@
-# Hizmet Şartları
-
 **Son Güncelleme:** 26 Ekim 2025
 
 ## 1. Şartlar Anlaşması

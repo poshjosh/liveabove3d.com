@@ -1,5 +1,3 @@
-# Términos de servicio
-
 **Última actualización:** 26 de octubre de 2025
 
 ## 1. Acuerdo de los términos

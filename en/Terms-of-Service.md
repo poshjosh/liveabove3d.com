@@ -1,5 +1,3 @@
-# Terms of Service
-
 **Last Updated:** 26 October 2025
 
 ## 1. Agreement to Terms

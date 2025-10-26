@@ -1,5 +1,3 @@
-# Nutzungsbedingungen
-
 **Letzte Aktualisierung:** 26. Oktober 2025
 
 ## 1. Zustimmung zu den Bedingungen

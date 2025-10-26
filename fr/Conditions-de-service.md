@@ -1,5 +1,3 @@
-# Conditions d'utilisation
-
 **Dernière mise à jour :** 26 octobre 2025
 
 ## 1. Accord sur les conditions
